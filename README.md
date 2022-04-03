@@ -1,6 +1,6 @@
 <p align="center">
   <a href="https://getdoks.org/">
-    <img alt="Doks" src="https://doks.netlify.app/doks.svg" width="60">
+    <img alt="Doks" src="https://godisgood.io/doks.svg" width="60">
   </a>
 </p>
 
@@ -38,7 +38,7 @@
 
 ## Demo
 
-- [doks.netlify.app](https://doks.netlify.app/)
+- [doks.netlify.app](https://godisgood.io/)
 
 ## Why Doks?
 

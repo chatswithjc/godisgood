@@ -2,17 +2,17 @@
 <rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom">
   <channel>
     <title>Contributors on God is Good</title>
-    <link>https://doks.netlify.app/contributors/</link>
+    <link>https://godisgood.io/contributors/</link>
     <description>Recent content in Contributors on God is Good</description>
     <generator>Hugo -- gohugo.io</generator>
     <language>en-US</language>
-    <lastBuildDate>Tue, 06 Oct 2020 08:50:29 +0000</lastBuildDate><atom:link href="https://doks.netlify.app/contributors/index.xml" rel="self" type="application/rss+xml" />
+    <lastBuildDate>Tue, 06 Oct 2020 08:50:29 +0000</lastBuildDate><atom:link href="https://godisgood.io/contributors/index.xml" rel="self" type="application/rss+xml" />
     <item>
       <title>Henk Verlinde</title>
-      <link>https://doks.netlify.app/contributors/henk-verlinde/</link>
+      <link>https://godisgood.io/contributors/henk-verlinde/</link>
       <pubDate>Tue, 06 Oct 2020 08:50:45 +0000</pubDate>
       
-      <guid>https://doks.netlify.app/contributors/henk-verlinde/</guid>
+      <guid>https://godisgood.io/contributors/henk-verlinde/</guid>
       <description>Creator of Hyas.
 @HenkVerlinde</description>
     </item>

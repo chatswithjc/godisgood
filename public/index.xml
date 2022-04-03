@@ -2,31 +2,31 @@
 <rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom">
   <channel>
     <title>God is Good</title>
-    <link>https://doks.netlify.app/</link>
+    <link>https://godisgood.io/</link>
     <description>Recent content on God is Good</description>
     <generator>Hugo -- gohugo.io</generator>
     <language>en-US</language>
     <copyright>Copyright (c) 2020-2021 Henk Verlinde</copyright>
     <lastBuildDate>Tue, 06 Oct 2020 08:47:36 +0000</lastBuildDate>
     
-        <atom:link href="https://doks.netlify.app/index.xml" rel="self" type="application/rss+xml" />
+        <atom:link href="https://godisgood.io/index.xml" rel="self" type="application/rss+xml" />
     
     
     <item>
       <title>Blog</title>
-      <link>https://doks.netlify.app/blog/</link>
+      <link>https://godisgood.io/blog/</link>
       <pubDate>Tue, 06 Oct 2020 08:49:55 +0000</pubDate>
       
-      <guid>https://doks.netlify.app/blog/</guid>
+      <guid>https://godisgood.io/blog/</guid>
       <description></description>
     </item>
     
     <item>
       <title>Docs</title>
-      <link>https://doks.netlify.app/docs/</link>
+      <link>https://godisgood.io/docs/</link>
       <pubDate>Tue, 06 Oct 2020 08:48:23 +0000</pubDate>
       
-      <guid>https://doks.netlify.app/docs/</guid>
+      <guid>https://godisgood.io/docs/</guid>
       <description></description>
     </item>
     
