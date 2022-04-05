@@ -6,6 +6,7 @@ date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
 images: []
+heroImageUrl: '/images/lightstock_245343_web.jpg'
 menu:
   docs:
     parent: "book"
@@ -13,11 +14,11 @@ weight: 100
 toc: true
 ---
 
-**There are no accidents in God's universe, Friend**
-
 **"We humans keep brainstorming options and plans, BUT God's PURPOSE prevails."** Proverbs 19:21 (The Message)
 
 **Everything, is either caused by God, or allowed by God. You either believe in the supreme, unlimited, power of God or not! You either believe that when you surrender to God, He takes over totally, or you live with a part-time God the rest of your life.**
+
+**There are no accidents in God's universe**
 
 Our human understanding has a limited comprehension of such God, who loves, cares, produces miracles, intervenes, protects, allows painful experiences to happen.
 
@@ -87,3 +88,33 @@ Let it sink for a minute: **You, yes, you... You have been called by God to live
 How you face your tests and tribulations will reveal your sense of significance. Do you remember, **"you have been called by God?"** This is an important question, because you never know when your life will end. You never know if you will have a chance to "succeed" at what you set your mind to accomplish. But you can always be certain you are fulfilling your call by God. We are here on this earth, to bring glory to God—to show how to love again, and again... nothing more, nothing less. The purpose of our lives is to learn how to love. To show others how to love. (Matthew 22: 37-40). The heart of significance is to be able to catch the fact that **God has called you to fulfill your purpose, this bringing glory to Him.**
 
 The only reason why you are here on earth is to learn how to be loved and love again. **SIN** by Lucifer, Adam and Eve was a relational challenge to the very existential nature of God. You don't fight **SIN,** you let God love you; you learn to love again! **SIN is simply the absence of love.**
+
+## God is Shaping You For Eternity
+
+There is only one thing I hang on to: and that is the fact that every thing that happens to you as a follower of God, in this life, God promises to use to shape you for eternity! That's it! I can hold on to this in the midst of darkness. I can hold on to this, when people tell me horrible stories of their past life. People share with me dark secrets of their past. Abuse suffered... They show me the scars on their walls of their hearts. Disillusionment. Shattered dreams. Hopes that will never crystallize in reality. Lives cut short by a tragic accident, cancer or drug overdose. Why? Why? You, see... I don't know!
+
+This is what I know. God is more than a rational, intellectual reality you can grab like a text book, to understand. **He is a RELATIONAL God.** You can only catch glimpses of Him in a personal relationship with Him. You catch glimpses of God when you read the Bible, when you pray, when He whispers in your mind. **What your relationship with God can not satisfy, your mind will never comprehend!** Are you with me, Friend? Followers of God in word, without a relationship with Him, are a contradiction in terms. **That's why I often say, it's easier to become a religious Christian and repeat the lingo, than it is to walk with God, read the Bible, contemplate God, meditate, reflect, and pray for enlightenment!** Without a relationship, you do not have depth to grasp the reality of God.
+
+**God Is Preparing You Today For Something Greater Tomorrow!**
+
+A traveler was visiting a logging area in the Pacific Northwest and was interested in seeing how the logs that would be used for furniture were chosen. As the logs came down the stream, the logger would suddenly reach out and hook one, pull it up, and then set it down. He would sometimes wait for a few minutes before grabbing another. There didn't seem to be any rhyme or reason to his choices.
+
+After a while, the visitor said to him, "I don't understand what you're doing. Can you please share with me so I can understand?"
+
+"These logs may all look alike to you," the logger said, "But I can recognize that a few of them are quite different. **The ones that I let pass came from trees that grew in a valley.** They were always protected from the storms. The grain is rather coarse.
+
+**"The logs that I pulled aside are from high up on the mountain,** where they were beaten by strong winds from the time they were quite small. That toughens the trees and gives them a fine grain. We save these logs for choice work. They're too good to be used for ordinary lumber."
+
+It was through the trying and testing that the logs were prepared for choice work.
+
+**The same could be said of you as a follower of God.**
+
+If you were to ask Moses how he became who he was, he would remind you of his trials with Pharaoh and his times of testing in the wilderness. If you were to ask Joseph, he would most likely refer back to his years as a slave, his imprisonment on a false accusation, and his imprisonment in Pharaoh's dungeon. Talk to Peter, and he would probably point back to his denial and how he learned many difficult yet important lessons.
+
+Maybe you find yourself facing something similar in your life today. Maybe you are beyond shock at something that just happened to you. "Why me? Why me?" There may be no rational interpretation of what is happening to you. But, then, I know one thing and one thing only: **God is preparing you for a choice work. God is shaping you for eternity.** When you follow God, no bad experience goes to waste. No storm is useless. You become more understanding. You learn to depend on God more than before. You begin to see what's relevant in this life. You grow roots deeper in the heart of God!
+
+**"For we are God's \[own\] handiwork (His workmanship), recreated in Christ Jesus, \[born anew\] that we may do those good works which God predestined (planned beforehand) for us \[taking paths which He prepared ahead of time\], that we should walk in them \[living the good life which He prearranged and made ready for us to live\]."** —Ephesians 2:10
+
+If you are a follower of God, Friend, **NOTHING IS A MERE ACCIDENT!** God is bigger than your circumstances. It may not be fair. It may not be understandable. It may not make sense. But, Friend, God will take whatever happens to you, and turn it around into a blessing! Romans 8:28
+
+Walk with God today, in the silence of your heart, knowing He is shaping you for eternity.

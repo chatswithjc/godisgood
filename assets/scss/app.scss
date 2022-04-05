@@ -33,3 +33,39 @@
 @import "layouts/pages";
 @import "layouts/posts";
 @import "layouts/sidebar";
+
+.docs-content{
+    padding:0px;
+}
+
+.hero-background{
+	width: 100%;
+    background-position: center center;
+    background-repeat: no-repeat;
+	background-size: cover;
+    min-height:300px;
+    padding: 20px;
+    margin-bottom:20px;
+    color: #fff !important;
+}
+
+.home-hero-background{
+	width: 100%;
+    background-position: center center;
+    background-repeat: no-repeat;
+	background-size: cover;
+    min-height:320px;
+    padding-top:40px;
+    color: #fff !important;
+}
+
+.docs-navigation{
+    text-transform: uppercase;
+}
+
+.audio-player-box{
+    margin: 0 auto;
+    text-align: center;
+    padding-bottom: 10px;
+    padding-top: 10px;
+}

@@ -1,11 +1,12 @@
 ---
 title: "Living a Life of Surrender"
 description: ""
-lead: "Living a Life of Surrender"
+lead: "True freedom is found in surrendering to Christ. The Reward is Way Better Than What You Give Up!"
 date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
 images: []
+heroImageUrl: '/images/lightstock_377182_web.jpg'
 menu:
   docs:
     parent: "book"
@@ -93,7 +94,3 @@ Throughout eternity, you will realize it was worth it to live for God on this ea
 God surprises us with HIS EXTRAVAGANT LOVE when we are working up a deal with Him! His deal is so much better!! If His extravagant love does not melt your heart into surrendering your pride, your perfectionism, your habits, your arrogance, your independent attitude, NOTHING ELSE WILL MATTER!
 
 God has the best deal for you, friend! Only, when you SURRENDER to the extravagant love of God as a bond servant, you become truly free! That's the paradox of authentic Christianity, and the dark side of religion.
-
-**True freedom is found in surrendering to Christ.**
-
-**Way better than what you give up!**

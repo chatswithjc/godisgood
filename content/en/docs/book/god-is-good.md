@@ -6,6 +6,7 @@ date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
 images: []
+heroImageUrl: '/images/lightstock_158002_web.jpg'
 menu:
   docs:
     parent: "book"
@@ -16,6 +17,14 @@ toc: true
 **God is beyond our imagination.** I have always loved contrasts. I am fascinated by contrasts and opposites. It intrigues me.
 
 * **God is the superlative of contrasts and extremes. If you define the "ends" of God, with "poles" like the south and the north pole, God's extremes would go so far, that would would never see both ends. Beyond your wildest imagination is God!**
+
+<div class="audio-player-box">
+  <h6>Who Is God?</h6>
+  <audio controls>
+    <source src="https://www-jag-media.s3.us-east-2.amazonaws.com/Who-Is-God-Ravi.mp3" type="audio/mpeg">
+    Your browser does not support the audio element.
+  </audio>
+</div>
 
 
 Psalm 8 (The Message). There was no Hubble telescope when King David wrote this hymn. It make the Bible even greater! Almost 4.000 years ago, David was describing what we see today! Amazing, the greatness of God, Almighty!
@@ -163,3 +172,4 @@ If you let God love you, you will experience an outpouring of His presence that 
 The Great Controversy between God and the devil has already been won! When Jesus died on the cross, on a Friday evening and said, "It is finished," He meant what He said: "It is done." The Sabbath, the seventh day of the week, became a symbol of the finished work of God in the Universe. REST for those who walk with God. Sunday, was the beginning of a new chapter. The resurrection of Jesus! He did no only rest from the work of SALVATION on behalf of humanity, but He sealed it with a new victory... **ETERNAL LIFE!**
 
 God is the victor for ever! Satan has been defeated for ever! So, whose side are you on?
+

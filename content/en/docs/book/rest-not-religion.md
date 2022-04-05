@@ -1,11 +1,12 @@
 ---
 title: "Rest Not Religion"
 description: ""
-lead: "Rest Not Religion"
+lead: "Being Born Again IS NOT a religion! It is an experience that God wants all who desire to know and serve Him to encounter"
 date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
 images: []
+heroImageUrl: '/images/lightstock_576549_web.jpg'
 menu:
   docs:
     parent: "book"
@@ -16,8 +17,6 @@ toc: true
 ## Rest Not Religion
 
 Jesus Christ did not say anything about religion in the Bible! His focus was on the kingdom of God and your relationship with Him as His Bride! 
-
-Being “Born Again” IS NOT a religion! It is an experience that God wants all who desire to know and serve Him to encounter.
 
 What is the Church then? A Church is simply you, me, and others like us, who believe that Jesus is the son of God. To be a Christian is to be “of Christ “or to be a follower of Jesus. The word Christian is all inclusive. It needs no other word added to it for explanation or definition. Men have created denominations (churches) in order to separate and regulate those who profess to believe alike.
 

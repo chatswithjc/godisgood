@@ -1,11 +1,12 @@
 ---
 title: "Who is Jesus Christ?"
 description: ""
-lead: "Who is Jesus Christ?"
+lead: "Jesus explained, “I am the Way, I am the Truth, and I am the Life. No one comes next to the Father except through union with me. To know me is to know my Father too. John 14:6 TPT"
 date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
 images: []
+heroImageUrl: '/images/lightstock_63471_web.jpg'
 menu:
   docs:
     parent: "book"
@@ -13,9 +14,26 @@ weight: 150
 toc: true
 ---
 
-Jesus explained, “I am the Way, I am the Truth, and I am the Life. No one comes next to the Father except through union with me. To know me is to know my Father too. John 14:6 TPT
+<div class="audio-player-box">
+  <h6>The Uniqueness of Christ</h6>
+  <audio controls>
+    <source src="https://www-jag-media.s3.us-east-2.amazonaws.com/The-Uniqueness-of-Christ-Ravi.mp3" type="audio/mpeg">
+    Your browser does not support the audio element.
+  </audio>
+</div>
+
+<div class="audio-player-box">
+  <h6>Jesus is The Ultimate Answer</h6>
+  <audio controls>
+    <source src="https://www-jag-media.s3.us-east-2.amazonaws.com/The-Ultimate-Answer-Ravi.mp3" type="audio/mpeg">
+    Your browser does not support the audio element.
+  </audio>
+</div>
+
 
 Even though Jesus Christ is equal to God, he never spoke of Himself while on earth, but always spoke what He heard from His Heavenly Father. He was never selfish, but always God-centered.
+
+
 
 “And being found in appearance as a man, HE HUMBLED HIMSELF and became obedient to the point of death, even the death of the cross."--Philippians 2:8
 

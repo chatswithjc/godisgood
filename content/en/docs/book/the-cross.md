@@ -1,11 +1,12 @@
 ---
 title: "Suffering and The Cross"
 description: ""
-lead: "Suffering and The Cross"
+lead: "What is the Meaning of the Cross?"
 date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
 images: []
+heroImageUrl: '/images/lightstock_771832_web.jpg'
 menu:
   docs:
     parent: "book"
@@ -131,6 +132,12 @@ This is the crux of the problem for many followers of God. They want to carry th
 Paul summed it up well when he wrote: "I have been crucified with Christ; it is no longer I who live, but Christ lives in me; and the life which I now live in the flesh I live by faith in the Son of God, who loved me and gave Himself for me" (Galatians 2:20).
 
 ## Purpose of Suffering
+
+Did you know God suffers with you? Did you know God keeps a record of your tears?
+
+This is what the Bible says in Psalm 56:8, **"You keep track of all my sorrows. YOU HAVE COLLECTED ALL MY TEARS IN YOUR BOTTLE. YOU HAVE RECORDED EACH ONE IN YOUR BOOK."** Did you know that about God, Friend!
+
+It is not wrong to cry. It is human. I feel sorry for people who can not cry. God keeps a record of our tears, because tears represent pain, suffering, losses, rejection, disappointments, betrayal, anger and longings.
 
 **"Pain insists upon being attended to. God whispers to us in our pleasures, speaks in our consciences, but shouts in our pains. It is his megaphone to rouse a deaf world."** - C.S. Lewis
 

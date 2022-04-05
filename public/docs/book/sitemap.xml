@@ -23,7 +23,7 @@
     </url>
     
     <url>
-      <loc>https://godisgood.io/docs/book/feeling-lost/</loc>
+      <loc>https://godisgood.io/docs/book/power-of-belief/</loc>
       <lastmod>2020-10-13T15:21:01+02:00</lastmod>
       <changefreq>weekly</changefreq>
       <priority>0.5</priority>
@@ -31,6 +31,13 @@
     
     <url>
       <loc>https://godisgood.io/docs/book/god-is-good/</loc>
+      <lastmod>2020-10-13T15:21:01+02:00</lastmod>
+      <changefreq>weekly</changefreq>
+      <priority>0.5</priority>
+    </url>
+    
+    <url>
+      <loc>https://godisgood.io/docs/book/god-is-simple/</loc>
       <lastmod>2020-10-13T15:21:01+02:00</lastmod>
       <changefreq>weekly</changefreq>
       <priority>0.5</priority>
@@ -58,14 +65,14 @@
     </url>
     
     <url>
-      <loc>https://godisgood.io/docs/book/the-cross/</loc>
+      <loc>https://godisgood.io/docs/book/salvation/</loc>
       <lastmod>2020-10-13T15:21:01+02:00</lastmod>
       <changefreq>weekly</changefreq>
       <priority>0.5</priority>
     </url>
     
     <url>
-      <loc>https://godisgood.io/docs/book/salvation/</loc>
+      <loc>https://godisgood.io/docs/book/the-cross/</loc>
       <lastmod>2020-10-13T15:21:01+02:00</lastmod>
       <changefreq>weekly</changefreq>
       <priority>0.5</priority>
@@ -86,13 +93,6 @@
     </url>
     
     <url>
-      <loc>https://godisgood.io/docs/book/god-is-simple/</loc>
-      <lastmod>2020-10-13T15:21:01+02:00</lastmod>
-      <changefreq>weekly</changefreq>
-      <priority>0.5</priority>
-    </url>
-    
-    <url>
       <loc>https://godisgood.io/docs/book/true-wealth/</loc>
       <lastmod>2020-10-13T15:21:01+02:00</lastmod>
       <changefreq>weekly</changefreq>
@@ -101,13 +101,6 @@
     
     <url>
       <loc>https://godisgood.io/docs/book/god-forgives/</loc>
-      <lastmod>2020-10-13T15:21:01+02:00</lastmod>
-      <changefreq>weekly</changefreq>
-      <priority>0.5</priority>
-    </url>
-    
-    <url>
-      <loc>https://godisgood.io/docs/book/power-of-belief/</loc>
       <lastmod>2020-10-13T15:21:01+02:00</lastmod>
       <changefreq>weekly</changefreq>
       <priority>0.5</priority>

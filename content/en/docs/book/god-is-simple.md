@@ -6,10 +6,11 @@ date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
 images: []
+heroImageUrl: '/images/lightstock_22093_web.jpg'
 menu:
   docs:
     parent: "book"
-weight: 200
+weight: 125
 toc: true
 ---
 
@@ -43,3 +44,78 @@ Matthew 6 introduces you into God's wholeness, God's simplicity and begs you to 
 
 Simplicity in its true meaning, and out of the frame of the four misconceptions I listed above, can be a powerful voice for God. Children are simple. The most passionate love is simple. Authentic emotions are simple, as opposed to neurotic and twisted manifestations of denial.
 
+## How to Be Happy
+
+Psalm 119:1-8 (The Message) contains **THE SECRET TO BE BLESSED BY GOD.**
+
+> You're blessed when you stay on course, walking steadily on the road revealed by God.
+You're blessed when you follow his directions, doing your best to find him.
+That's right—you don't go off on your own; you walk straight along the road he set.
+You, God, PRESCRIBED THE RIGHT WAY TO LIVE; now you expect us to live it.
+Oh, that my steps might be steady, keeping to the course you set;
+Then I'd never have any regrets in comparing my life with your counsel.
+I thank you for speaking straight from your heart; I learn the pattern of your righteous ways.
+I'm going to do what you tell me to do; don't ever walk off and leave me.
+
+
+These verses describe exactly the opposite of what religion is all about. If you read the words of King David carefully, you will find out the he is talking about obedience here. But his description of obedience is **RELATIONAL.** Obedience is the result of a relationship with God, that is so precious to you, that you long to walk with Him, you long to learn His way!
+
+I have talked to hundreds of people through the years. Heard hundreds of stories. Coached hundreds of marriages. Seen marriages come together, and others dissolve. **I believe God prescribes the right way to live.** That is the fundamental truth of the Bible, and the purpose of "Life Center." If you want to obtain the best of life, learn God's way and respond to His invitation. Don't seek to fulfill your life with anything else but the will and the presence of God!
+
+God will not only share with you the best life to live ever on this earth, but will also enable you, with transforming power, to become what He has set you to be in fulfilling your purpose.
+
+## How to Live Your Best Life
+
+We are born to dream. We are born to fly high with ideas. We are born to be creative. I love watching kids play. We are made by God to dream big dreams, and think of the best life has to offer. The human imagination has no limit. God is not against you **LIVING YOUR BEST LIFE EVER.** All to the contrary, He wants to do the opposite of what the world does... The world and the culture bring you down, help you to get stuck in a rut, makes you materialistic and dependent on "things." We, human, tend to decide what is best for us, we obsess over those things, we abhor what we label as unpleasant, and then miss the magnificent opportunities God has for us!
+
+So, here it is...
+
+Romans 12:1-2-The Message \[My comments\]
+
+**So here's what I want you to do, God helping you:**
+
+**1) TAKE YOUR EVERYDAY, ORDINARY LIFE—your sleeping, eating, going-to-work, and walking-around life—**
+
+\[Think of all the basics of your life... a roof over your head... a job... family... friends... opportunities... school... career...\]
+
+**2) and place it before God as an offering.**
+
+\[Bring everything to God as an offering... the ability to sleep, walk, work, going to the gym, exercising, eating, going to see a doctor... money to pay bills.... Presenting everything to God as an offering reminds you who is in control of your life...\]
+
+**3) Embracing what God does for you is the best thing you can do for him.**
+
+\[Imagine this incredible principle... **THE BEST YOU CAN DO FOR GOD, IS TO EMBRACE WHAT HE GIVES YOU... WHAT HE ALLOWS YOU TO RECEIVE AND HAVE...** This may include experiences you are not too hot about... this may include pieces of this fragmented world... all part of your ordinary life... Paul says, **EMBRACE IT!** You will bring a smile to God's face when you embrace everything, because, again... you are focusing on God as the source of your fulfillment in life...\]
+
+\[The rest is of this passage is what the apostle Paul says to re-shape the principle he share in the first verse\]
+
+**Don't become so well-adjusted to your culture that you fit into it without even thinking.**
+
+\[Living life on your own, trying to do your best, without God, is always a missed opportunity to **LIVE LIFE AT YOUR BEST! One sign of God's absence in your life is a boring routine with nothing to be grateful and joyful about...Life is like a treadmill...** \]
+
+**Instead, fix your attention on God. You'll be changed from the inside out. Readily recognize what he wants from you, and quickly respond to it. Unlike the culture around you, always dragging you down to its level of immaturity, GOD BRINGS THE BEST OUT OF YOU, develops well-formed maturity in you.**
+
+I am far from perfect, humanly speaking! So far, is not even funny!
+
+But I will tell you what I am excited about... I am catching on to the work God is doing in my life! I am fascinated by what He does when I stop fighting! He is phenomenal! The more I embrace every moment the better it gets...
+
+So, I am passing on to you, not just a piece of life coaching advice... I am sharing with you what God is doing in my life, as I follow this simple 3 step principle!
+
+1) Take everything life brings to you...
+
+2) Offer it to God...
+
+3) Then embrace everything...
+
+Here is the reason... Unless you offer God everything you won't be able to embrace everything... In our human nature we only want to embrace what we label "good".... God says, "Offer everything... then embrace it..."
+
+"What do I do with my lack of money? Shortage of funds... "
+
+Offer it to God, present it to him as an offering, then you will be able to embrace your condition and learn incredible lessons to grow and see new possibilities.
+
+What do I do with my disease? That's not something I wanted..." Offer it to God, then you will be able to embrace your condition and see God in the midst of your disease... Isn't that a good deal, Friend?
+
+"I am unhappy with my marriage... I am sick of my wife!"
+
+Here... here... offer that condition to God first, then embrace it and wait to hear from God what He wants from you.... How He wants you to handle the unloving relationship... Fix your eyes on God, instead of running away, the way the culture encourages you to do...
+
+Whatever you are facing, good and bad, offer it to God and then embrace it, Friend! I promise... You will see God opening your eyes and producing magnificent spiritual, emotional and mental growth, that will impact your body, relationships and your world around. No life coach, or pastor can ever come up with a more powerful, transforming principle as this one!

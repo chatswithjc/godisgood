@@ -6,6 +6,7 @@ date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
 images: []
+heroImageUrl: '/images/lightstock_558526_web.jpg'
 menu:
   docs:
     parent: "book"
@@ -13,10 +14,7 @@ weight: 260
 toc: true
 ---
 
-## God Transforms Lives
-
-
-**"The best is yet to come"**
+## God Transforms Lives: The Best is Yet to Come!
 
 Isaiah 61 gives us a powerful insight into God's transforming power.
 
@@ -64,13 +62,10 @@ Until you believe that God does everything RIGHT you won’t find peace in your 
 
 When you surrender to God, He takes your past, your entire life, and transforms it into something gorgeous. GOD ALWAYS DOES EVERYTHING RIGHT.
 
-"...Your salvation requires you to turn back to me
-and stop your silly efforts to save yourselves.
-Your strength will come from settling down
-in complete dependence on me..." (Isaiah 30:15-18 Message)
+"...Your salvation requires you to turn back to me and stop your silly efforts to save yourselves. Your strength will come from settling down in complete dependence on me..." (Isaiah 30:15-18 Message)
 
 Galatians 5, (and the entire book of Galatians for that matter) is all about the freedom we can experience when we accept God, Jesus, His grace, and His power in our lives.  It doesn’t mean by any stretch of the imagination, we have arrived to a level of static perfection! It simply means that when God declares you FREE, you are free, indeed! FREE forever! You’ve got to believe God’s Word by faith. Trust that He means what He says! YOU ARE FREE WHEN YOU ACCEPT HIM IN YOUR LIFE. No one, nothing, will ever take that status away from you, except your own choice to live a miserable life of rejection of God, to the moment you breathe your last breath! The person who accepts [a rule keeping system] trades all the advantages of the free life in Christ for the obligations of the slave life of the law. When you attempt to live by your own religious plans and projects, you are cut off from Christ, YOU FALL OUT OF GRACE. Meanwhile we expectantly wait for a satisfying relationship with the Spirit. For in Christ, neither our MOST CONSCIENTIOUS RELIGION nor DISREGARD OF RELIGION amounts to ANYTHING. What matters is something far more interior: FAITH EXPRESSED IN LOVE. It is absolutely clear that GOD HAS CALLED YOU TO A FREE LIFE. Just make sure that you don’t use this freedom as an excuse to do whatever you want to do and destroy your freedom. Rather, use your freedom to serve one another in love; that’s how freedom grows. For EVERYTHING we know about God’s Word IS SUMMED UP IN A SINGLE SENTENCE: LOVE OTHERS AS YOU LOVE YOURSELF. That’s an act of true freedom. If you bite and ravage each other, watch out—in no time at all you will be annihilating each other, and where will your precious freedom be then? The magnificent FREEDOM of God granted to you by GRACE is grown, nurtured and affirmed by LOVE.  Live freely, animated and motivated by God’s Spirit. Then you won’t feed the compulsions of selfishness. For there is a root of sinful self-interest in us that is at odds with a free spirit, just as the free spirit is incompatible with selfishness. These two ways of life are antithetical, so that you cannot live at times one way and at times another way according to how you feel on any given day. Why don’t you choose to be led by the Spirit and so escape the erratic compulsions of a law-dominated existence? 
 
 Have you ever experienced the freedom of God? Pray like this:
 
-“God, I accept your freedom in the name of Jesus! I am free indeed, because you promised me that I could be free for the rest of my life. Teach me through your Spirit the implications of being a free person. Teach me how to embrace my humanity without shame… Teach me to accept the broken self in me the same you accept me! Give me eyes to see myself, like You see me, God! Grant me peace, now… Teach me how to forgive myself, when I make mistakes… I believe you took my SIN away forever when Jesus died on the cross of Calvary… Give me the strength to let go, and live as a FREE citizen of your Kingdom of Grace and Love. Remind me to look at people, like you see them! In the name of Jesus, AMEN”
+> “God, I accept your freedom in the name of Jesus! I am free indeed, because you promised me that I could be free for the rest of my life. Teach me through your Spirit the implications of being a free person. Teach me how to embrace my humanity without shame… Teach me to accept the broken self in me the same you accept me! Give me eyes to see myself, like You see me, God! Grant me peace, now… Teach me how to forgive myself, when I make mistakes… I believe you took my SIN away forever when Jesus died on the cross of Calvary… Give me the strength to let go, and live as a FREE citizen of your Kingdom of Grace and Love. Remind me to look at people, like you see them! In the name of Jesus, AMEN”

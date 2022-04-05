@@ -6,6 +6,7 @@ date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
 images: []
+heroImageUrl: '/images/lightstock_55418_web.jpg'
 menu:
   docs:
     parent: "book"
@@ -20,6 +21,14 @@ The English language has a poor comprehension of the word ‘love’, because it
 Love is patient, love is kind. It does not envy, it does not boast, it is not proud. It does not dishonor others, it is not self-seeking, it is not easily angered, it keeps no record of wrongs. Love does not delight in evil but rejoices with the truth. It always protects, always trusts, always hopes, always perseveres. Love never fails. (1 Corinthians 13:4-8)
 
 If one will do as Christ commanded, one will discover eternal life or love and peace, of joy unimaginable, a place where the knowledge of good and evil is replaced with divine love. A place where all of your ego "issues" vanish, a place that is very real. We call it heaven. It is real, it is a place, and it is hidden, a secret, unknowable unless it is revealed by the Creator. Search it out for yourself through faith and obedience to Christ. Find Christ and you have discovered the country! Don’t just believe in it, or have faith it exists, Jesus commanded us to find it, for it is in Him, and Him alone. The knowledge of good and evil does not work well, and the story of humanity proves it does not work at all. 
+
+<div class="audio-player-box">
+  <h6>Greatest Love Of All</h6>
+  <audio controls>
+    <source src="https://www-jag-media.s3.us-east-2.amazonaws.com/Greatest-Love-Of-All-Ravi.mp3" type="audio/mpeg">
+    Your browser does not support the audio element.
+  </audio>
+</div>
 
 There is no fear in love [dread does not exist]. But perfect (complete, full-grown) love drives out fear, because fear involves [the expectation of divine] punishment, so the one who is afraid [of God’s judgment] is not perfected in love [has not grown into a sufficient understanding of God’s love] (1 John 4:18, Amp)
 

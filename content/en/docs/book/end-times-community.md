@@ -6,6 +6,7 @@ date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
 images: []
+heroImageUrl: '/images/lightstock_66445_web.jpg'
 menu:
   docs:
     parent: "book"
@@ -13,15 +14,13 @@ weight: 320
 toc: true
 ---
 
-<img src="/images/lightstock_460049_web.jpg"/>
-
 The Rise Of The ONE WORLD CHURCH has been in process, but it will be officially sealed on September 23-25, 2015.
 
 The 27th of September (Sunday, most of the Christian religion "Sabbath." The Roman emperor Constantine, a former sun-worshiper, professed conversion to Christianity, though his subsequent actions suggest the “conversion” was more of a political move than a genuine heart change. Constantine named himself Bishop of the Catholic Church and enacted the first civil law regarding Sunday observance in A.D. 321. The Catholic Church admits to the change of "Sabbath" (Saturday) to Sunday by the authority of the Church. Protestants simply follow the Catholic Church, except they "try" to defend Sunday keeping with the Bible...)
 
 The Bible, in the Book of Revelation, warns us that a **POLITICAL-RELIGIOUS LEADER** will arise in the **LAST DAYS** of the history of this world **WHO DRIVE THE WORLD INTO A ONE-WORLD RELIGION.** This is not a new idea. It was predicted 2.000 years in a vision God gave the apostle John in the Island of Patmos.
 
-Revelation 13: 11-18
+Revelation 13: 11-18 
 
 "I saw **ANOTHER Beast**rising out of the ground. It had two horns **like a lamb but sounded like a dragon** when it spoke. (This "beast" in prophetic terms represents the USA as a world power). **IT WAS A PUPPET OF THE FIRST BEAST,** (The first beast has been traditionally understood to be the Catholic Church)... (The second beast) **made earth and everyone in it worship the FIRST BEAST, which had been healed of its deathblow."** (This last description of the first beast provides us with a historical anchor to know what it means)
 
@@ -544,6 +543,49 @@ life, and this life is in His Son. 1 John 5:11.
 [7] “...To him who overcomes I will give to eat from the tree
 of life, which is in the midst of the Paradise of God.”
 Revelation 2:7.
+
+### Are You Worshipping the Devil?
+
+I know my question may sound outrageous. But one thing is clear, if you are not worshiping God you are worshiping the devil!
+
+What is worship?
+
+Worship is to declare the **worthiness, the meritoriousness, and the recognition** God **ALONE** deserves. Matthew 6:33, does not use the word **worship** but implies the heart of **worship. "Seek FIRST the kingdom of God and his righteousness, all the other things shall be added unto you"**
+
+We don't hear much about devil worship, demon possession and **idolatry** in the world of Christianity, because we fear the implications of the subject.
+
+In Matthew 12:30, Jesus said, "You are either with me or against me." There is no in-between in God's kingdom. You are either walking with God as His follower, or you are walking away from Him, even if you are a religious person, do, and follow the "God stuff" in church and your personal life.
+
+Ezekiel was an ancient prophet of God. He was in exile along with his people under the dominating power of the time, Babylon. The people were suffering under the harsh control of the King. God used Ezekiel in the midst of this catastrophe and arduous conditions to speak to His people. They were in captivity because they had become devil worshipers, demon driven, enemies of God! They had given themselves to raw, open idolatry! God spoke to Ezekiel in a series of seven visions during 22 years from 593 to 571 BC, a period which spans to the final destruction of Jerusalem in 586. The worst was still to come for the people of Israel: the final collapse and destruction of their beloved Jerusalem.
+
+Here is one of the messages God gave Ezekiel:
+
+**"Son of man, these \[people\] have set up their IDOLS IN THEIR HEARTS, and put before them that which causes them to stumble into iniquity."**—Ezekiel 14:3
+
+The message was clear. They had worshiped the devil, they **set up idols in their hearts. As a result of it they became BLIND to the reality of God's sovereign presence and power. They stumble into spiritual darkness and abhorrent behavior in the eyes of God.** **Iniquity** is really a bad condition in the Bible. It means the lowest, the most repudiating, most challenging conduct against God's will. Jesus used this word to describe people who will be lost forever, while believing that their religious, moral, ethical acts would save them. He called them "doers of iniquity." (Matthew 7: 23)
+
+I find it interesting that the first two of the Ten Commandments deal with the issue of other "gods." The first commandment says, **"You shall have no other gods before Me" (Exodus 20:3, 4), while the second commandment says, "You shall not make for yourself a carved image—any LIKENESS of anything that is in heaven above, or that is in the earth beneath, or that is in the water under the earth; you shall not bow down to them nor serve them. For I, the Lord your God, am a jealous God"**
+
+**Idols** in your heart can cause God to refuse to listen to your prayers. Did you know that, Friend? An idol is anything (or anyone) that takes the place of God in our lives. It also can be a seemingly good thing. **Idolatry** takes the place of God, in that it creates human "tangibility." The need to touch, smell, sense, see, feel, create, be proud of, is so ingrained in the human nature. Faith is exactly the opposite of "tangibility."
+
+For example:
+
+* You can make an idol out of your career, education, or academic achievements. You can teach theology or be a pastor, and idolize your views, position and displace God, while talking about God. There is nothing wrong with a career, but if it is more important than God, then it has become an idol.
+
+* You can make an idol out of a relationship or out of a marriage, family, husband, wife, boyfriend, or girlfriend. Some people marry their idol. They are in love with their idol. They divorce because their "idol" failed and they look for the next "idol." (Illusions of a better life, more love, no hassles).
+
+* You can make an idol out of money or material possessions. There is nothing wrong with money, but if money directs your moves, your connections, your life style, your image, your heart, then money has taken the place of God.
+
+* Anything that takes the place of God, is an idol. Once the idol is set in your heart, you will go blind, and you will be an open field for satanic and demonic possession. The idol can be good or bad: it simply needs to take the place of God. Gluttony, lack of self-control, food, alcohol, drugs, sex, pornography, addictions, occult practices, admiration of power, wealth, prosperity, sense of security, personal image, prestige, fame, role, religion, selfishness (Me, me, me), watching trashy movies, reading trashy books, empty entertainment, being busy all the time, and driven by the outside world. These are some of the idols that can grow roots deep in your heart. Take a look at Galatians 5 and read there what happens when demonic forces take over. (Read it in The Message if you have that version)
+
+Here is my point, if you or me are worshiping the devil, growing, nurturing and protecting idols in our hearts, God will not hear our prayers. Does that make God a "bad" God? Listen, Friend! Out of mercy, God will not hear or respond to prayers that will destroy you forever! Like the people of Israel, many times when we are up against the wall of circumstances, pain, and suffering, we open the door to God's supremacy. Are you with me? He wants you to fall in love with Him, so you not only get what you want, but will find delight in His presence, and receive way more than you would get if God would be your puppet and give you what you want in a state contrary to God's will!
+
+Psalm 37:4 says, **"DELIGHT yourself in \[God\] and He will give you the DESIRES of your heart."**Phenomenal promise from God to His followers!
+
+Whatever is going on in your life, surrender to God. A bad marriage, a conflict with your children, a conflict with your boss, the grief for the loss of a loved one, a financial challenge, sickness, cancer... Whatever! All undesirable human conditions, tend to drive us to create **idols** to satisfy our needs. God asks us to go in the opposite direction! There is nothing the devil wants more than to encourage you to satisfy your human needs your way! If he gets you there, there is no limit to his control in your life!
+
+Surrender your idols. Good and bad. Ask Him to free you from demonic drives and forces in your life. Ask God to give you peace and a sense of His presence in the midst of whatever storm you are facing right now. Surrender to God and you will witness wonders and miracles! Worship God and God alone. Ask Him to teach you which situations, relationships and behaviors are idols in your life. Give it all up for Him! You will be blessed beyond your wildest imagination! You will enjoy the most fun with God in your life! He is not a "fun killer." He is instead the source of the greatest joy and happiness you have ever known!
+
 
 ## Aliens are Demons
 

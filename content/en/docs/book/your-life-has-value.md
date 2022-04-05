@@ -6,6 +6,7 @@ date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
 images: []
+heroImageUrl: '/images/lightstock_463417_web.jpg'
 menu:
   docs:
     parent: "book"
@@ -15,11 +16,17 @@ toc: true
 
 Regardless of your age at this moment, God has been watching you since the day you were born. God has been allowing things to happen or not to happen. There is no room for arrogance in God’s universe. Yes, you made choices, but your choices were enabled because God let it happen! When God chooses to override your freedom of choice, you are DONE, Friend! God is the supreme manager of the entire universe.
 
+<div class="audio-player-box">
+  <h6>You are Created For Significance</h6>
+  <audio controls>
+    <source src="https://www-jag-media.s3.us-east-2.amazonaws.com/Is-Jesus-Created-For-Significance-Ravi.mp3" type="audio/mpeg">
+    Your browser does not support the audio element.
+  </audio>
+</div>
+
 There is only one thing I hang on to: and that is the fact that every thing that happens to you as a follower of God, in this life, God promises to use to shape you for eternity! That’s it! I can hold on to this in the midst of darkness. I can hold on to this, when people tell me horrible stories of their past life. People share with me dark secrets of their past. Abuse suffered… They show me the scars on their walls of their hearts. Disillusionment. Shattered dreams. Hopes that will never crystallize in reality. Lives cut short by a tragic accident, cancer or drug overdose. Why? Why? You, see… I don’t know!
 
-
 “Before I shaped you in the womb, I KNEW ALL ABOUT YOU. Before you saw the light of day, I had HOLY PLANS FOR YOU” Jeremiah 1:5 (The Message)
-
 
 “For I know the plans I have for you,” declares the LORD, “plans to prosper you and not to harm you, plans to give you hope and a future. Then you will call on me and come and pray to me, and I will listen to you. You will seek me and find me when you seek me with all your heart." Jeremiah 29:11-13-NIV
 

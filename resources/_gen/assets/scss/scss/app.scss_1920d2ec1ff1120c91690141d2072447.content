@@ -9898,15 +9898,12 @@ body {
 .docs-navigation {
   border-top: 1px solid #e9ecef;
   margin-top: 2rem;
-  margin-bottom: 0;
-  padding-top: 2rem; }
+  margin-bottom: 0; }
 
 .docs-navigation a {
   font-size: 0.9rem; }
 
 @media (min-width: 992px) {
-  .docs-navigation {
-    margin-bottom: -1rem; }
   .docs-navigation a {
     font-size: 1rem; } }
 
@@ -11673,5 +11670,36 @@ a.docs-link {
 .page-links h3.sidebar-link a:hover,
 .page-links .sidebar-link.h3 a:hover {
   text-decoration: underline; }
+
+.docs-content {
+  padding: 0px; }
+
+.hero-background {
+  width: 100%;
+  background-position: center center;
+  background-repeat: no-repeat;
+  background-size: cover;
+  min-height: 300px;
+  padding: 20px;
+  margin-bottom: 20px;
+  color: #fff !important; }
+
+.home-hero-background {
+  width: 100%;
+  background-position: center center;
+  background-repeat: no-repeat;
+  background-size: cover;
+  min-height: 320px;
+  padding-top: 40px;
+  color: #fff !important; }
+
+.docs-navigation {
+  text-transform: uppercase; }
+
+.audio-player-box {
+  margin: 0 auto;
+  text-align: center;
+  padding-bottom: 10px;
+  padding-top: 10px; }
 
 /*# sourceMappingURL=main.css.map */
