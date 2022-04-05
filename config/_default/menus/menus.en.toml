@@ -29,40 +29,24 @@
   url = "/tutorial/lorem/"
 
 [[main]]
-  name = "Docs"
-  url = "/docs/prologue/introduction/"
-# url = "/docs/1.0/prologue/introduction/"
+  name = "About"
+  url = "/docs/book/about/"
   weight = 10
 
-# [[main]]
-#   name = "Tutorial"
-#   url = "/tutorial/lorem/ipsum/"
-#   weight = 15
-
 [[main]]
-  name = "Blog"
-  url = "/blog/"
+  name = "Your Purpose"
+  url = "/docs/book/your-purpose/"
   weight = 20
 
 [[main]]
-  name = "Get Started"
-  weight = 30
-  identifier = "get-started"
-  url = "/docs/prologue/introduction/"
+  name = "Your Purpose"
+  url = "/docs/book/your-purpose/"
+  weight = 20
 
 [[main]]
-  name = "Quick Start"
-  weight = 40
-  identifier = "quick-start"
-  url = "/docs/prologue/quick-start/"
-  parent = "get-started"
-
-[[main]]
-  name = "Tutorial"
-  weight = 50
-  identifier = "tutorial"
-  url = "https://getdoks.org/tutorial/introduction/"
-  parent = "get-started"
+  name = "Good News"
+  url = "/docs/book/gospel-good-news/"
+  weight = 20
 
 [[social]]
   name = "GitHub"

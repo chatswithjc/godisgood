@@ -15,6 +15,8 @@ toc: true
 
 **There are no accidents in God's universe, Friend**
 
+**"We humans keep brainstorming options and plans, BUT God's PURPOSE prevails."** Proverbs 19:21 (The Message)
+
 **Everything, is either caused by God, or allowed by God. You either believe in the supreme, unlimited, power of God or not! You either believe that when you surrender to God, He takes over totally, or you live with a part-time God the rest of your life.**
 
 Our human understanding has a limited comprehension of such God, who loves, cares, produces miracles, intervenes, protects, allows painful experiences to happen.
