@@ -12,8 +12,8 @@ description = "God is Good"
 ## Open Graph
 images = ["doks.png"]
 ogLocale = "en_US"
-domainTLD = "doks.netlify.app"
-titleHome = "Doks Theme"
+domainTLD = "godisgood.io"
+titleHome = "God is Good"
 
 ## Twitter Cards
 twitterSite = "@getdoks"

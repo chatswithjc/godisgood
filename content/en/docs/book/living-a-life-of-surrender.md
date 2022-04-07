@@ -77,7 +77,27 @@ Long term, I believe you will live with peace, and a hope that nothing else, and
 
 **Whatever you have given up, hasn't God made it up to you already?** You gave up a few friends. Hasn't He given you better friends in their place? Hasn't God taken you to "Life Center" where people care about you? You have given up so-called pleasures. But in retrospect, don't you realize that they weren't pleasures at all, but addictions—and destructive ones at that. You have seen how your life has changed, and God has already made it up to you. That's the first think I want you to realize, Friend. There are immediate results when you choose to follow God!
 
+**EMBRACE SUFFERING,** Jesus said!
+
+At the end you will receive your BEST LIFE EVER!
+
+An eternal reward!
+
+A fulfilled purpose for the honor of God!
+
 **And then the best is yet to come.**
+
+**The greatest reason why I am not able to bless more people, it's because they choose to do things their way, instead of my way.** That's why the reading of the Bible, prayer, meditations, and time with me matters. I long to share with you thoughts that match the purpose for which I created you. I long to share with you the foundational principles of **LIFE.**
+
+There is a way that seems right to you, you follow it, you become obsess with it... You sweat your way into it. But in the end, I know it will lead you into losing your life. Trust me, if I block the way.
+
+I long to bless you, Friend! I long to bestow blessings in your life far beyond what you have ever imagined!
+
+Come to me. Get away with me and you’ll recover your life. I’ll show you how to take a real rest. Walk with me and work with me—watch how I do it. Learn the unforced rhythms of grace. I won’t lay anything heavy or ill-fitting on you. **Keep company with me and you’ll learn to live freely and lightly.**
+
+I love you, Friend! - God
+
+*(See The Message: 2 Chronicles 16:9; Isaiah 55: 8,9; Proverbs 14:12; Matthew 11: 28-30)*
 
 I believe that followers of God receive immediate positive results when they choose to follow God. Their life style is conducive to health and well being.
 

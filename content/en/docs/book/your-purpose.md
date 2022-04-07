@@ -1,7 +1,7 @@
 ---
 title: "Your Purpose"
 description: ""
-lead: "Your Purpose"
+lead: "Our human understanding has a limited comprehension of such God, who loves, cares, produces miracles, intervenes, protects, allows painful experiences to happen."
 date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
@@ -14,25 +14,11 @@ weight: 100
 toc: true
 ---
 
-**"We humans keep brainstorming options and plans, BUT God's PURPOSE prevails."** Proverbs 19:21 (The Message)
+## There are no accidents in God's universe
 
-**Everything, is either caused by God, or allowed by God. You either believe in the supreme, unlimited, power of God or not! You either believe that when you surrender to God, He takes over totally, or you live with a part-time God the rest of your life.**
+"We humans keep brainstorming options and plans, BUT God's PURPOSE prevails." Proverbs 19:21 (The Message)
 
-**There are no accidents in God's universe**
-
-Our human understanding has a limited comprehension of such God, who loves, cares, produces miracles, intervenes, protects, allows painful experiences to happen.
-
-**"Brothers and sisters, I do not consider myself yet to have taken hold of it. BUT ONE THING I DO: FORGETTING WHAT IS BEHIND AND STRAINING TOWARD WHAT IS AHEAD, I PRESS ON TOWARD the goal to win the prize for which God has called me heavenward in Christ Jesus."** Philippians 3:13-14 (NIV)
-
-Forgetting the **PAST,** looking **FORWARD,** I **PRESS ON.** Can you feel the force behind these words, Friend? Total focus. Total singleness of mind and purpose. Only **ONE THING** matters: To press on!
-
-Let your entire life be rooted in God. Question everything with the eyes of one who knows God. Check everything through the filters of God's presence in the here and now. Accept everything in faith, believing that somehow there is a reason for such event. Romans 8:28 holds the key to the best life ever! Nothing in life gets better than trusting in God.
-
-**"And we know that all things work out for good for those who love God."**
-
-This promise does not say, that everything in life will be pleasant. This is not an unconditional promise, either. It only applies to followers of God. This promise is for those who believe God is powerful to turn an ugly divorce into a better life. This promise is for parents who suffer for the life a child has chosen to live. God will bring gold out of the fire. This promise is for those who believe God can turn ashes into beauty. This promise is for those who believe their mistakes, sins, a horrible, painful past, can be turn into a blessing to bless others.
-
-“Life will break you. Nobody can protect you from that, and living alone won't either, for solitude will also break you with its yearning. **YOU HAVE TO LOVE. YOU HAVE TO FEEL. IT IS THE REASON YOU ARE HERE ON EARTH. YOU ARE HERE TO RISK YOUR HEART.** You are here to be swallowed up. And when it happens that you are broken, or betrayed, or left, or hurt, or death brushes near, let yourself sit by an apple tree and listen to the apples falling all around you in heaps, wasting their sweetness. Tell yourself you tasted as many as you could.” (**"_The Painted Drum_"** by Louise Erdrich)
+Everything, is either caused by God, or allowed by God. You either believe in the supreme, unlimited, power of God or not! You either believe that when you surrender to God, He takes over totally, or you live with a part-time God the rest of your life.
 
 The Bible says that your heavenly Father has a plan for each of our individual lives (FathersLoveLetter.com). To fulfill that plan is nothing less than ultimate success in life. But we need to hear Him, so that He can lead us into His plan for our lives. But to do that, we need to be connected to Him through a personal loving relationship.
 
@@ -50,6 +36,18 @@ Jesus Christ not only loves you and proved it but also claimed to be I AM, the o
 
 God tells us in Jeremiah 29:13, **"And you will seek Me and find Me, when you search for Me with all your heart." If you are also a true seeker, if you want to know the true God, then He will reveal himself to you too.**
 
+**"And we know that all things work out for good for those who love God."**
+
+This promise does not say, that everything in life will be pleasant. This is not an unconditional promise, either. It only applies to followers of God. This promise is for those who believe God is powerful to turn an ugly divorce into a better life. This promise is for parents who suffer for the life a child has chosen to live. God will bring gold out of the fire. This promise is for those who believe God can turn ashes into beauty. This promise is for those who believe their mistakes, sins, a horrible, painful past, can be turn into a blessing to bless others.
+
+Let your entire life be rooted in God. Question everything with the eyes of one who knows God. Check everything through the filters of God's presence in the here and now. Accept everything in faith, believing that somehow there is a reason for such event. Romans 8:28 holds the key to the best life ever! Nothing in life gets better than trusting in God.
+
+“Life will break you. Nobody can protect you from that, and living alone won't either, for solitude will also break you with its yearning. **YOU HAVE TO LOVE. YOU HAVE TO FEEL. IT IS THE REASON YOU ARE HERE ON EARTH. YOU ARE HERE TO RISK YOUR HEART.** You are here to be swallowed up. And when it happens that you are broken, or betrayed, or left, or hurt, or death brushes near, let yourself sit by an apple tree and listen to the apples falling all around you in heaps, wasting their sweetness. Tell yourself you tasted as many as you could.” (**"_The Painted Drum_"** by Louise Erdrich)
+
+> "Brothers and sisters, I do not consider myself yet to have taken hold of it. BUT ONE THING I DO: FORGETTING WHAT IS BEHIND AND STRAINING TOWARD WHAT IS AHEAD, I PRESS ON TOWARD the goal to win the prize for which God has called me heavenward in Christ Jesus." Philippians 3:13-14 (NIV)
+
+Forgetting the **PAST,** looking **FORWARD,** I **PRESS ON.** Can you feel the force behind these words, Friend? Total focus. Total singleness of mind and purpose. Only **ONE THING** matters: To press on!
+
 **God uses all kinds of vessels to reveal His glory** — big vessels and little vessels, ornate vessels and plain vessels, very expensive ones and very ordinary ones. They all serve a purpose!
 
 **God wants to do something great with your life in the near future.** Did you know that? He wants to use the **"Gospel according to Friend"** and tell people about His power to transform. He wants you to be His story to the people of your world.
@@ -62,7 +60,6 @@ Two things are required:
 
 Augustine once said, **“The confession of bad works is the beginning of good works.” We start by dealing with our past. The Bible says,** “If we confess our sins to God, he will keep his promise and do right: he will forgive us our sins and PURIFY us from all our wrongdoing” (1 John 1:9 TEV).
 
-
 **YOUR CHOICES DETERMINE YOUR POTENTIAL**. Here is the key to the best **CHOICES** of your life: GOD'S PURPOSE FOR YOU! I have found out that there are different **quality** of choices people make. The best **quality** is born in the soil of people who have **CHOSEN** God's purpose. Their choices seem to reflect the heart of God. Love and commitment to people above their convenience. Service to others above financial gain. A readiness to stand for God at the expense of popularity. A choice to the fresh revelation of God's will instead of the stale predicaments of irrelevant religion. Whatever you are facing right now, friend, **MAKE A CHOICE.** Start with one simple choice. That choice will change the direction of your life. Choose God's purpose! If you don't know what's God's purpose for your life, write me a note. I will be more than glad to help you find it. That is the one **CHOICE** that will transform your life forever! And it is not RELIGION! Whatever you are facing right now, friend, **MAKE A CHOICE.** Start with one simple choice. That choice will change the direction of your life. Choose God's purpose! If you don't know what's God's purpose for your life, write me a note. I will be more than glad to help you find it. That is the one **CHOICE** that will transform your life forever! 
 
 > There is nothing the devil wants more than to have disoriented about your destination, confused about your purpose for your life NOW, obsessed with the future, and/or feeling guilty about your PAST life or even yesterday!
@@ -71,9 +68,9 @@ One of the things that I often confront in dealing with people is their inabilit
 
 Anything that distracts your pivotal relationship with God, and your purpose for this life, is demonic and RELIGIOUS!
 
-Here is the call from Jesus to fulfill your purpose in the next DECADE. Matthew 5: 13-16-The Message
+Here is the call from Jesus to fulfill your purpose in the next DECADE. 
 
-"Let me tell you why you are here. You're here to be salt-seasoning that brings out the God-flavors of this earth. If you lose your saltiness, how will people taste godliness? You've lost your usefulness and will end up in the garbage.
+"Let me tell you why you are here. You're here to be salt-seasoning that brings out the God-flavors of this earth. If you lose your saltiness, how will people taste godliness? You've lost your usefulness and will end up in the garbage. (Matthew 5: 13-16-The Message)
 
 "Here's another way to put it: You're here to be light, bringing out the God-colors in the world. God is not a secret to be kept. We're going public with this, as public as a city on a hill. If I make you light-bearers, you don't think I'm going to hide you under a bucket, do you? I'm putting you on a light stand. Now that I've put you there on a hilltop, on a light stand—shine! Keep open house; be generous with your lives. By opening up to others, you'll prompt people to open up with God, this generous Father in heaven."
 
@@ -118,3 +115,41 @@ Maybe you find yourself facing something similar in your life today. Maybe you a
 If you are a follower of God, Friend, **NOTHING IS A MERE ACCIDENT!** God is bigger than your circumstances. It may not be fair. It may not be understandable. It may not make sense. But, Friend, God will take whatever happens to you, and turn it around into a blessing! Romans 8:28
 
 Walk with God today, in the silence of your heart, knowing He is shaping you for eternity.
+
+## The Real Test of Holiness
+
+>C. S. Lewis said, **"The real test of being in the presence of God is that you either forget about yourself altogether or see yourself as a small, dirty object."**
+
+We don't often hear statements like that coming from pulpits or worship center's podiums today. We hear how we can all be champions. We hear how we can all be successful, victorious. We hear how much prosperity faithfulness to God can bring into our lives. It seems to me like in many ways, it is not cool to speak of being spiritually destitute, to teach that we are to be poor in spirit. Yet the Bible says, "Blessed are the poor in spirit, for theirs is the kingdom of heaven" (Matthew 5:3). We should be praising God for people who feel empty... people who need direction and God in their lives. We should rejoice when someone says to us, "You know, I don't know what else to do with my marriage..." Wow! "Blessed are the poor in spirit..." Anything that brings us to our knees in humble humility and praying to God for help is a "blessed" moment Jesus, said. "Blessed" is the person who experiences "poverty of spirit."
+
+Last time I read the Gospels, the "lost" were not being invited to have fun... or invited to study a map, or a calendar of last day events! They were being invited because they were "lost." **THEY WERE BEING INVITED TO A RELATIONSHIP WITH JESUS BECAUSE HE IS THE ONLY ONE WHO KNOWS HOW TO RESCUE LOST PEOPLE"**
+
+>Lostness is a serious condition, friend. I am not against fun, joy and a good laugh. But you see, if you are lost, if you acknowledge your condition, when you meet God, you will either run to Him for help, embrace Him and love Him, or you will run away from Him!
+
+Jesus told a story about a Pharisee and a sinner who went into the temple to pray.
+
+The Pharisee, a religious man, prayed, "God, I thank You that I am not like other men . . ." (Luke 18:11). You see, this was the kind of guy that had RELIGION all figured out. His God has options for everything! His God could be explained by rules, laws, decrees, teachings and doctrine. He was basically saying, "I have the TRUTH, I follow the TRUTH, and I got it!" Wow! Would you love to leave your Lamborghini parked in his guy's garage? He is the typically good guy. Dependable, predictable, hard worker, efficient, a man of his word. This guy would the the leader of the local church and most likely the main source of financial support. A dream church member!
+
+The sinner, on the other hand, WAS LOST. He wouldn't even lift up his eyes. He beat on his chest and said, "God, be merciful to me a sinner!" (verse 13), or more literally, "the sinner." Apparently he did not think of himself as one sinner among many; he acted as though he were the only one. He was so overwhelmed with the sense of his sin, his moral bankruptcy, and his spiritual destitution that, as far as he was concerned, everyone else's sin paled in comparison.
+
+Jesus said of the SINNER, "This man went down to his house justified rather than the other . . ." (verse 14). Why? Because he saw himself as he really was. Yet we tend do the very opposite. We attempt to justify our sin because we can always find others who are far worse.
+
+Are you the "good guy" or the "sinner."
+
+Are you the one who has the answers, or are you a seeker after the transforming power of God in your life?
+
+Are you into being a "good person" or "holy"?
+
+How do you feel about yourself in the presence of God?
+
+Does God make you "good" or "holy"?
+
+If you want to be HOLY for God, if you want to LIVE, really LIVE God's life (John 10:10), experience the MOST PHENOMENAL RADICAL POWER OF GOD in the next 10 years, then you must see yourself as you are, be sorry for it, and want to see CHANGE in your life. Seek God as a "lost" person and you will FIND HIM!
+
+**"Blessed are the poor in spirit."** Matthew 5:3
+
+**"For everyone who exalts himself will be humbled, and he who humbles himself will be exalted."**Luke 18:14 (This was the verse that God repeated in my head 101 times when I was considering suicide in the darkest hour of my life. I recalled my Dad's voice repeating this verse to me... "Humble yourself... He will exalt you!" And today, 4 years later I can tell you that God fulfilled that promise in my life like I have never known ever before.)
+
+**Spiritual poverty is a GODLY virtue! It is the TEST OF HOLINESS**
+
+Seekers of God bring a smile to the face of God. People who are passionate about God, His Word, praying and seeking His will are the only ones who find TRUE, ultimate satisfaction. The test of HOLINESS is very simple: "How much do you long for God in your life?" **Then show it!** Seek Him. Read your Bible every day. Pray. Meditate. 
