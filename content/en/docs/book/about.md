@@ -35,9 +35,9 @@ This eBook is for everyone because God invites everyone to the Kingdom.
 * Grace: You are enough. God is enough.
 * LET GOD LOVE YOU, LIVE LOVED, LEARN TO LOVE GOD by seeking what matters to God on this earth (Kingdom) and consider God's way of doing things (righteousness). "Seeking the Kingdom of God" is not a religious act. It's a RELATIONAL enterprise. It's an attitude of vulnerability. No religion can teach you that.
 
-### LOVE is ENOUGH...GRACE is ENOUGH...YOU" are ENOUGH...Because God IS ENOUGH!
+**LOVE is ENOUGH...GRACE is ENOUGH...YOU" are ENOUGH...Because God IS ENOUGH!**
 
-### Let God Love You! Live Loved. The Best is Yet to Come. Never Give Up.
+**Let God Love You! Live Loved. The Best is Yet to Come. Never Give Up.**
 
 > “This is how much God loved the world: He gave his Son, his one and only Son. And this is why: so that no one need be destroyed; by believing in him, anyone can have a whole and lasting life. God didn’t go to all the trouble of sending his Son merely to point an accusing finger, telling the world how bad it was. He came to help, to put the world right again. Anyone who trusts in him is acquitted; anyone who refuses to trust him has long since been under the death sentence without knowing it. And why? Because of that person’s failure to believe in the one-of-a-kind Son of God when introduced to him. (John 3:16-18, The Message)
 
@@ -76,3 +76,7 @@ Jesus Christ absolutely did not come to this earth to establish another religion
 * <a href="https://www-jag-media.s3.us-east-2.amazonaws.com/100_minute_bible.mp3">Listen to the 100 Minute Bible</a>
 * <a href="https://www-jag-media.s3.us-east-2.amazonaws.com/red_letters_words_of_jesus_by_gary_sosbee.mp3">Listen to the Red Letter Words of Christ</a>
 * [Watch the Jesus Film](https://www.jesusfilm.org/watch.html)
+* <a target="_blank" href="https://www.thepsalmsproject.com/" rel="noreferrer noopener">Psalms Project</a>
+* <a target="_blank" href="https://www.streetlightsbible.com/" rel="noreferrer noopener">Streetlights Audio Bible</a>: Listen to the NLT Audio Bible
+* <a target="_blank" href="https://www.tommywalkerministries.org/" rel="noreferrer noopener">Tommy Walker Ministries</a>: Free Worship Music
+* <a href="https://www.fathersloveletter.com/" target="_blank" rel="noreferrer noopener">The Father's Love Letter</a>
