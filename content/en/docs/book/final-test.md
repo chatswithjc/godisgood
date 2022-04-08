@@ -121,9 +121,9 @@ Here are some indicators of whether you are grateful to God for His love, and yo
 
 * **You will love other followers of God.** In 1 John 3:14 we read, "We know that we have passed from death to life, because we love the brethren. He who does not love his brother abides in death." Don't say that you love God while you harbor hatred toward fellow believers.
 
-* **Your will gladly invest time, energy and money in God's Kingdom expansion.** A lover of God can not shut up. He has to share God with others. A lover of God is a witness to the power and the love of God! Last week Wayne brought two new people to "Life Center." I could read the joy on his face! At the end he said to me, "God willing, next week I will bring two more!" Wow! There is nothing more satisfying than to be involved in Kingdom expansion.
+* **Your will gladly invest time, energy and money in God's Kingdom expansion.** A lover of God can not shut up. He has to share God with others. A lover of God is a witness to the power and the love of God! 
 
-* **You will look forward to the weekly gathering of followers of God.** Our weekly gathering is not just to hear a message and affirm our spiritual walk with God, but to actually fellowship with one another. When we hear testimonies of miracles, we are strengthen by the Spirit of God. When you get to know a fellow believer, you are enriching your own experience, and blessing someone else. How many people do you know personally @ Life Center? Do you know what happened to someone else the week before? Do you care to ask? That kind of friendly behavior will show you love God! Sometimes a good joke, a good laugh, is a great way to fellowship! Make a point to get to know people around you!
+* **You will look forward to the weekly gathering of followers of God.** 
 
 * **You will long for the Second coming of Jesus.** The apostle Paul wrote, "Finally, there is laid up for me the crown of righteousness, which the Lord, the righteous Judge, will give to me on that Day, and not to me only but also to all who have loved His appearing" (2 Timothy 4:8). A follower of God who loves God, is also looking forward, with a sense of anticipation, to Christ's return.
 

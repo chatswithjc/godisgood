@@ -14,10 +14,6 @@ weight: 320
 toc: true
 ---
 
-The Rise Of The ONE WORLD CHURCH has been in process, but it will be officially sealed on September 23-25, 2015.
-
-The 27th of September (Sunday, most of the Christian religion "Sabbath." The Roman emperor Constantine, a former sun-worshiper, professed conversion to Christianity, though his subsequent actions suggest the “conversion” was more of a political move than a genuine heart change. Constantine named himself Bishop of the Catholic Church and enacted the first civil law regarding Sunday observance in A.D. 321. The Catholic Church admits to the change of "Sabbath" (Saturday) to Sunday by the authority of the Church. Protestants simply follow the Catholic Church, except they "try" to defend Sunday keeping with the Bible...)
-
 The Bible, in the Book of Revelation, warns us that a **POLITICAL-RELIGIOUS LEADER** will arise in the **LAST DAYS** of the history of this world **WHO DRIVE THE WORLD INTO A ONE-WORLD RELIGION.** This is not a new idea. It was predicted 2.000 years in a vision God gave the apostle John in the Island of Patmos.
 
 Revelation 13: 11-18 
@@ -357,7 +353,7 @@ And, you and I know this: the weeding Christians and religious people will alway
 
 But, you see, Friend, **the logic of forgiving, enduring, tolerating, LOVING the weeds and allowing them to grow alongside? That's no logic at all.**
 
-This parable has profound implications as to how we, at **"Life Center"** approach the people who come to us. If I read this parable right, God calls us to proclaim His message of love, grace, transforming power to **ALL** alike. This parable reminds me I don't know who is **"wheat"** and who is **"weed."** I must be inclusive, welcoming, loving, compassionate, merciful, gentle to all people. In fact, as a Pastor I must make sure that "farmers" are not out there pulling "weeds." Those "farmers" are the darkest secret of churches who consider themselves to be carriers of the "truth of God." They are the modern Pharisees. They are the ones who want to stone the woman caught having sex. They judge the Zacheous of this world. They are quick to judge the woman who crawls under the table to anoint Jesus' feet with a mix of perfume and tear of gratefulness.
+This parable has profound implications as to how we approach the people who come to us. If I read this parable right, God calls us to proclaim His message of love, grace, transforming power to **ALL** alike. This parable reminds me I don't know who is **"wheat"** and who is **"weed."** I must be inclusive, welcoming, loving, compassionate, merciful, gentle to all people. In fact, as a Pastor I must make sure that "farmers" are not out there pulling "weeds." Those "farmers" are the darkest secret of churches who consider themselves to be carriers of the "truth of God." They are the modern Pharisees. They are the ones who want to stone the woman caught having sex. They judge the Zacheous of this world. They are quick to judge the woman who crawls under the table to anoint Jesus' feet with a mix of perfume and tear of gratefulness.
 
 Let the paradox sink in, for you are in the farm... **It's only the foolishness of the cross that explains this upside down parable of Jesus.**
 

@@ -24,7 +24,7 @@ My hope with this book is that you give God another chance. Whether you don't th
 
 ## My Story
 
-My story is common to everyone. I have experienced the suffering of mental health (anxiety, depression, obsession, fear), addictions, religion and am here to say no one is beyond healing, rescue, repair in Jesus.
+My story is common to everyone. I have experienced the suffering of mental health (anxiety, depression, obsession, fear), addictions, religion and am here to say no one is beyond healing, rescue, repair in Jesus. Jesus Christ is the answer for every problem!
 
 ## Who is this book for?
 

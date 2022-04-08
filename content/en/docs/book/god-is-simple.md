@@ -60,15 +60,13 @@ I'm going to do what you tell me to do; don't ever walk off and leave me.
 
 These verses describe exactly the opposite of what religion is all about. If you read the words of King David carefully, you will find out the he is talking about obedience here. But his description of obedience is **RELATIONAL.** Obedience is the result of a relationship with God, that is so precious to you, that you long to walk with Him, you long to learn His way!
 
-I have talked to hundreds of people through the years. Heard hundreds of stories. Coached hundreds of marriages. Seen marriages come together, and others dissolve. **I believe God prescribes the right way to live.** That is the fundamental truth of the Bible, and the purpose of "Life Center." If you want to obtain the best of life, learn God's way and respond to His invitation. Don't seek to fulfill your life with anything else but the will and the presence of God!
+**God prescribes the right way to live.** That is the fundamental truth of the Bible. If you want to obtain the best of life, learn God's way and respond to His invitation. Don't seek to fulfill your life with anything else but the will and the presence of God!
 
 God will not only share with you the best life to live ever on this earth, but will also enable you, with transforming power, to become what He has set you to be in fulfilling your purpose.
 
 ## How to Live Your Best Life
 
 We are born to dream. We are born to fly high with ideas. We are born to be creative. I love watching kids play. We are made by God to dream big dreams, and think of the best life has to offer. The human imagination has no limit. God is not against you **LIVING YOUR BEST LIFE EVER.** All to the contrary, He wants to do the opposite of what the world does... The world and the culture bring you down, help you to get stuck in a rut, makes you materialistic and dependent on "things." We, human, tend to decide what is best for us, we obsess over those things, we abhor what we label as unpleasant, and then miss the magnificent opportunities God has for us!
-
-So, here it is...
 
 Romans 12:1-2-The Message \[My comments\]
 

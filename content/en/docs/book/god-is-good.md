@@ -157,7 +157,7 @@ GOD STICKS BY ALL WHO LOVE HIM, BUT IT’S ALL OVER FOR THOSE WHO DON’T.
 
 My mouth is filled with God’s praise. Let everything living bless him, bless his holy name from now to eternity!"
 
-The God King David described in this Psalm IS MY GOD, Friend! That’s the God that melts my heart! That’s the God that drives me, and moves me to do what I do! He has been good to me beyond my wildest dreams! I don’t know any other God! I am committed to preach, reach out, build “Life Center,” share the Good News with the people of Pasadena to the day I die, or Jesus comes back to take me home. I love God with passion!
+The God King David described in this Psalm IS MY GOD, Friend! That’s the God that melts my heart! That’s the God that drives me, and moves me to do what I do! He has been good to me beyond my wildest dreams! I don’t know any other God! 
 
 “Or do you show contempt for the riches of his kindness, forbearance and patience, NOT REALIZING THAT GOD’S KINDNESS IS INTENDED TO LEAD YOU TO REPENTANCE?" (Romans 2:4 (NIV))
 
