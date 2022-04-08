@@ -69,3 +69,23 @@ Galatians 5, (and the entire book of Galatians for that matter) is all about the
 Have you ever experienced the freedom of God? Pray like this:
 
 > “God, I accept your freedom in the name of Jesus! I am free indeed, because you promised me that I could be free for the rest of my life. Teach me through your Spirit the implications of being a free person. Teach me how to embrace my humanity without shame… Teach me to accept the broken self in me the same you accept me! Give me eyes to see myself, like You see me, God! Grant me peace, now… Teach me how to forgive myself, when I make mistakes… I believe you took my SIN away forever when Jesus died on the cross of Calvary… Give me the strength to let go, and live as a FREE citizen of your Kingdom of Grace and Love. Remind me to look at people, like you see them! In the name of Jesus, AMEN”
+
+## Repentance
+
+**"Or do you show contempt for the riches of his kindness, forbearance and patience, NOT REALIZING THAT GOD'S KINDNESS IS INTENDED TO LEAD YOU TO REPENTANCE?"**
+
+Repentance (from the Greek "metanoia") means **CHANGE** as an afterthought. In psychological terms "metanoia" or this kind of change is the process of experiencing a "break down" and subsequent, positive psychological re-building or "healing"
+
+Such "breakdown" preceding change can be caused by human means as I mentioned above, **OR** by God's **KINDNESS.**
+
+Think of it...
+
+God is deeply invested in the **CHANGE** of people by means of **LOVING, showing mercy, grace and KINDNESS.** Hell and suffering are not God's creation. They are the result of sin and the rejection of God's love and kindness. You don't need to pay for the penalty of your sin/s any longer. God did it for you in the person of Jesus Christ. God does not condemn you, **HE LOVES YOU!** (John 3: 16-18) So you either accept His love or reject it. It is as simple as that, friend! I have said it many times: "If **LOVE** does not change the heart of a person, all other sources may change the behavior but not the HEART! I have watched people who every one though they had change for 30 years, to watch them destroy themselves in one moment, because **their heart was never been touched by deep and abiding love.** They simply contained their behavior for 30 years because of fear, religion, or self-discipline. In one moment of weakness it was all gone! I also know people who have grown in very unloving, and broken down situations, victims of child abuse, a world of drugs and crime... somehow, they caught a glimpse of the **LOVE OF GOD** and they actually surrendered to such love! These people do not reflect the symptoms of others that grew up under similar circumstances. Why is that?
+
+You see, human behavior is mostly predictable. A reward system creates predictable behavior. Fear creates predictable behavior. The only think that changes the human heart from the inside out, in spite of, and beyond, circumstances, reward and fear, is **LOVE.**
+
+I know how love and kindness makes me want to please another human being. Love melts my heart! Love makes me want to be better. Love makes me want to give my best! Love drives me to do what nothing else will do.
+
+At the end of the day, what drives you to do what you do,friend? What motivates you to change? Love or Fear? Love or the need to fit?
+
+**LOVE** is God's strategy to get people like you and me to change! I pray that you may catch a glimpse of such incredible **LOVE** and choose to follow God in the purpose He has for your life on this earth!

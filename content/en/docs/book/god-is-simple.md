@@ -110,10 +110,4 @@ Here is the reason... Unless you offer God everything you won't be able to embra
 
 Offer it to God, present it to him as an offering, then you will be able to embrace your condition and learn incredible lessons to grow and see new possibilities.
 
-What do I do with my disease? That's not something I wanted..." Offer it to God, then you will be able to embrace your condition and see God in the midst of your disease... Isn't that a good deal, Friend?
-
-"I am unhappy with my marriage... I am sick of my wife!"
-
-Here... here... offer that condition to God first, then embrace it and wait to hear from God what He wants from you.... How He wants you to handle the unloving relationship... Fix your eyes on God, instead of running away, the way the culture encourages you to do...
-
 Whatever you are facing, good and bad, offer it to God and then embrace it, Friend! I promise... You will see God opening your eyes and producing magnificent spiritual, emotional and mental growth, that will impact your body, relationships and your world around. No life coach, or pastor can ever come up with a more powerful, transforming principle as this one!
