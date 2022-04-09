@@ -20,7 +20,21 @@ The power of God is manifested upon those who BELIEVE. Doubt is deadly to your r
 
 ## Shift Your Mindset
 
+**Your thoughts shape your reality.**
+
+Whenever you think you can achieve something or whenever you think you will never be able to, you are right in both instances. When you decide that you are useless that’s all you’ll ever be. But if you choose to believe you were meant for greatness, most likely you will be driven to look for resources that will assist in becoming what you chose to be.
+
+How you feel about yourself is what you project into the world and although your thoughts cannot be seen, they can be felt by others. If you see yourself as ugly or unfit that’s exactly how others will perceive you too.
+
+Your thoughts will either generate positive energy or negative energy. If positive, you will attract people towards you. If you generate negative energy rooted in a negative thoughts, you will push people away.
+
+Your emotional state doesn't just affect the ones who surround you but it drastically affects your own quality of life. What you believe to be true about yourself will always remain so **unless you choose to change your thoughts!** I do meet people who tell me, "change is impossible at this age. Or, people don't really change! Well, if you have those thoughts, guess what? You won't change!
+
 **Everything starts with a thought! At the end of the day you are what you think about!** 
+
+I read my Bible in the morning and seek God's presence not because I think I am better than anyone else. I just know I need positive thoughts from God to live life one more day! This morning just in the middle of my devotional time with God, He shared a couple of ideas. I write them down on paper. They gave me the "oxygen" I needed to breath well all day long. It's amazing what good, positive, healthy, dynamic thoughts can do for you.
+
+Positive thoughts do not only bless you personally, physically, emotionally, but they create a positive presence in your mind that influence all your interactions with people.
 
 >You feel what you think! You do what you think! Research shows that 85% of physical illness and health is caused by emotions. What are emotions? We spoke about this last night. **Emotions and feelings are deeper, non rational thoughts, rooted in the body, in your gut, in your tummy!** The gut has often been called the second brain.
 
@@ -148,3 +162,27 @@ Simple thoughts to replace negativity into positive energy:
 * Choose to focus on the magnificent things happening in your life right now. Stuff you don't think about. Roof over your head. A job. Friends. **Marriage is not the answer to loneliness and boredom!** A life of purpose and service is. Find your purpose in life. Your purpose will drive you to the most amazing people in the world!
 
 * Stop trying to be right all the time. Who needs that? Really... What about just listening and asking questions? It is so boring to be around opinionated, predictable, non creative people...
+
+## Stop Worrying
+
+By God's design, we all have a **natural reflex.** A natural reflex is just what you do when you face any situation. God made us that way! You don't have to teach a child a natural reflex. If a child touches something hot, he will recoil. He doesn't leave his hand there, but will pull it back. That is a natural reflex! Same when someone hurts you emotionally. Same when you face an unexpected problem. Natural reflexes are not bad. They could actually save your life!
+
+Then there is a **conditioned reflex.** This is what you learn in time. It's called "crisis management." You learn how to respond to situations. When you learn to drive, for instance, it is not easy at first. You are conscious of everything you are doing. But after awhile, it gets easier. And before you know it, your driving has become a series of conditioned reflexes. The better you train yourself in the area of conditioned reflexes, the better you will be able to handle the unexpected.
+
+So what should you do when you face a personal crisis? Running away won't help! Repressing and denying reality won't help either! Worrying makes it worse.
+
+That's when you need to resist your natural reflex, and exercise, and develop, the best conditioned reflex for the moment.
+
+For example, in times of trouble, some people turn to other people. There is a healthy place for that conditioned reflex. That is certainly better than getting drunk, or doing drugs, or tuning out by pretending that a bad situation does not exist. But, you see, Friend, ultimately, people cannot meet all your needs. No one will be able to do that for you. There comes a time when you need supernatural power to manage a crisis successfully! And by the way, this is a huge issue in long term marriages that end up in divorce. Usually there are mountains of unmet expectations, unresolved conflict, and deep disappointment. No one, should be expected to fulfill all of your needs. It's impossible!
+
+So, here is the conditioned reflex that will become the best prescription against worrying, running away, stressing out, going crazy, or avoiding a crisis altogether!
+
+**Turn to God.**
+
+It is that simple, yet it takes a well disciplined conditioned reflex to do it. In the midst of unmet needs and expectations, turn to God! In the midst of a dark storm, turn to God! When sad, depressed, unable to get hold of yourself, turn to God!
+
+Philippians 4:6 tells us:
+
+**"Be anxious for NOTHING, but in EVERYTHING by prayer and supplication, with thanksgiving, let your requests be made known to God."**
+
+The best prescription for worry is prayer, understanding the promises of God, reading the Bible, praising Him, and placing everything in His hands. Let me share with you what I do every morning. I actually raise the palms of my hands to God while I pray. I place each one of my kids on those palms. One by one. I place marriages I am praying for. I place people I have not even met but request prayers for a particular issue. **It helps me to visualize, the act of surrendering.** That's why I kneel. God is not impressed by that! No one sees me. It is my mental state that matters. It is good for my mind. It is good in order to create a conditioned reflex that says... "When anxious, when in pain, STOP, PAUSE and SURRENDER..." When freaking out abut something... stop all the crazy traffic going on in your mind, and in your tummy... and be silent before God. He was there before you got there. He was watching everything. He is in the crisis with you, and He has already decided what the best outcome will be, if you don't fight back!

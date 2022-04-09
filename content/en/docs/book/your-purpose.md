@@ -159,3 +159,77 @@ The more you follow God, the more you will become like Him. Why? Because the Spi
 The apostle Paul wrote, **"I have been crucified with Christ; IT IS NO LONGER I WHO LIVE, but CHRIST LIVES IN ME; and the life which I now live in the flesh I live by faith in the Son of God, who loved me and gave Himself for me"** (Galatians 2:20).
 
 In the first century, the word "Christian" was a term of derision that meant "of the party of Christ." Are you a Christian because people see Christ in you, Friend? Are you His follower? That is God's plan for your life: to make you like Christ.
+
+## Pain and Pleasure
+
+All human behavior moves in a pendulum like motion I call the "PP" principle. "PP" stands for Pain and Pleasure. We run away from pain towards pleasure in everything we do. We begin on the "PP" path instinctively, from the time we are born, before we develop consciousness. Hunger is pain, seeking pleasure or fulfillment. Because this world is imperfect, we inevitably move from pleasure back to pain, and back to seeking pleasure. Even those who choose sado-masochistic modes of behavior, are secretly seeking pleasure, though most of us may not understand it as such. I have found out, after years of observing human conduct, that at the root of even the most bizarre and destructive behavior, there is a twisted, hidden hope to find pleasure, or at least a way to minimize pain. **That's what human behavior is all about.**
+
+What changes the pendulum motion for humans is God's PURPOSE for humans, the third "P."
+
+Without PURPOSE we die, though we continue to breath! PURPOSE is born in the heart of God. He is the creator of the human PURPOSE. He describes for us the reason for our existence. He point us towards the higher destination.
+
+God allowed you to be born in this world for a PURPOSE. He is allowing you to take space on this planet for a PURPOSE. God's PURPOSE is what gives you a higher level of consciousness, so whether you experience pain or pleasure, you stay on a path towards PURPOSE or DESTINY.
+
+1) Confusing you about your PURPOSE in life
+
+2) Distracting you from your PURPOSE in life
+
+If the devil can keep you in that pendulum mode of pain, seeking pleasure, back to pain and back to pleasure... back and forth... then he got you! There is nothing higher to aspire for!
+
+God wants you to move beyond the "PP" state on to the higher level of His PURPOSE.
+
+What is God's PURPOSE for your life?
+
+If you want to find out what God's PURPOSE for your life is, observe His character. Watch how He loves you. Look at Jesus on the cross.
+
+John 3: 16-"For God so LOVED the world that He gave His only begotten Son, that whoever believes in Him shall not perish but have everlasting life."
+
+**God LOVES YOU!**
+
+So, what is God's PURPOSE for your life?
+
+**Simply, To Learn To Be A LOVER like He is**
+
+1) To learn HOW to allow God to LOVE you.
+
+2) To learn HOW to love God.
+
+3) To learn HOW to love people.
+
+4) To learn HOW to love self.
+
+Matthew 22: 37-40-The Message \*My notes \[ \]
+
+"Jesus said, "'**LOVE** the Lord your God with all your passion and prayer and intelligence.' This is the most important, the first on any list. \[Obediebce to God's first 4 commandments is about **LOVING** GOD\]
+
+But there is a second to set alongside it: '**LOVE** others as well as you **LOVE** yourself.' \[Obedience to God in the second set of 6 commandments is about **LOVING** PEOPLE AND SELF\]
+
+These two commands are pegs; everything in God's Law and the Prophets hangs from them."
+
+This is God's daily assignment for you! LOVE!
+
+At the end of the day you should be able to ask yourself, "Was I a lover today?" That's the only answer that matters, regardless of how much money you made, or how things went at work, or what grades you got in your paper. Whatever is not motivated by LOVE has "0" value in the eyes of God. Did you know that? And obeying God's LAW OF LOVE is not legalistic either! It's about LOVE! Did you noticed?
+
+**LOVE** is all that matters in God's agenda!
+
+1 Corinthians 13:1-4-The Message
+
+"If I speak with human eloquence and angelic ecstasy but don't love, I'm nothing but the creaking of a rusty gate. If I speak God's Word with power, revealing all his mysteries and making everything plain as day, and if I have faith that says to a mountain, "Jump," and it jumps, but I don't love, I'm nothing. **If I give everything I own to the poor and even go to the stake to be burned as a martyr, but I don't love, I've gotten nowhere.** So, no matter what I say, what I believe, and what I do, I'm bankrupt without love."
+
+Everything God does in His universe is to LOVE you, bless you and direct you. God model's His purpose for your life by doing it FIRST HIMSELF!
+
+Everything the devil does in God's universe is to trap, catch, seduce and DESTROY you. Don't forget that!
+
+Follow God's PURPOSE today, friend, and move beyond the mere "PAIN-PLEASURE" motion.
+
+CHOOSE to use PAIN to fulfill God's PURPOSE. Pain becomes valuable when used to enhance God's PURPOSE in your life. (Romans 8:28)
+
+CHOOSE to use PLEASURE to fulfill God's PURPOSE. Pleasure becomes valuable when used to enhance God's PURPOSE. (1 Timothy 6:17)
+
+**" Friend, seek FIRST God's kingdom, and his righteousness, and ALL THE OTHER THINGS WILL BE GIVEN TO YOU AS WELL."** (Matthew 6:33)
+
+God wants to transform your heart and shape you for eternity. God has a purpose for you right now. God wants to reach people for His Kingdom through you, right now!
+
+Are you ready to surrender to God, today?
+
+Are you ready to put Him first in your life, above everything else?

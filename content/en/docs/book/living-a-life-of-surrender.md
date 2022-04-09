@@ -75,8 +75,6 @@ Jesus replied, “And everyone who has given up houses or brothers or sisters or
 
 Long term, I believe you will live with peace, and a hope that nothing else, and no one else, will ever be able to give you. Every trial you face, will make you better, when you are following God. God is in charge of your life, and He takes all situations and transform them for your own good. When you follow God, everything happens for a purpose. Romans 8:28.
 
-**Whatever you have given up, hasn't God made it up to you already?** You gave up a few friends. Hasn't He given you better friends in their place? Hasn't God taken you to "Life Center" where people care about you? You have given up so-called pleasures. But in retrospect, don't you realize that they weren't pleasures at all, but addictions—and destructive ones at that. You have seen how your life has changed, and God has already made it up to you. That's the first think I want you to realize, Friend. There are immediate results when you choose to follow God!
-
 **EMBRACE SUFFERING,** Jesus said!
 
 At the end you will receive your BEST LIFE EVER!

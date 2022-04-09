@@ -90,3 +90,19 @@ Ephesians 3: 12-21-The Message
 **20-21God can do anything, you know—far more than you could ever imagine or guess or request in your wildest dreams! He does it not by pushing us around but by working within us, his Spirit deeply and gently within us.**
 
 There will be no peace in your heart until you experience the **love and the grace of God.** When someone has hurt you badly, betrayed you to the bone, the human side of you only considers consequences, punishment and pain. When you have been touched by the passionate love of God, you will long to see people turning to God.
+
+**To be a follower of God is costly! To stand against the popular trends is costly! It was costly to Jesus. It was costly to the apostles. It will be costly for anyone who chooses a radical discipleship in behalf of God's cause in the world.**
+
+**C. S. Lewis wrote, "To love at all is to be vulnerable. Love anything, and your heart will certainly be wrung and possibly be broken."**
+
+If you love God, you also will suffer as a result, because people will attack you for your love for Him and your radical position on issues. That is what happened with the church of Smyrna in the book of Revelation. Here is what Jesus' had to say to this suffering church:
+
+**I know about your suffering and your poverty—but you are rich! I know the blasphemy of those opposing you. They say they are Jews, but they are not, because their synagogue belongs to Satan. Don't be afraid of what you are about to suffer. The devil will throw some of you into prison to test you. You will suffer for ten days. But if you remain faithful even when facing death, I will give you the crown of life. Anyone with ears to hear must listen to the Spirit and understand what he is saying to the churches. Whoever is victorious will not be harmed by the second death.** (Revelation 2:9–11)
+
+This is the shortest of the seven messages Jesus gave to these churches, and it is interesting to note there are no critical words. Jesus simply commended and encouraged this church. And instead of destroying the church, persecution actually strengthened it. The same will happen in our time, Friend!
+
+It is easy to belong to the masses of political, cultural and religious"flip-flop." It is costly to stand for the radical discipleship of Jesus.
+
+Here is the promise to those who stand firm in times when it seems like everyone is surrendering to popular pressure.
+
+**"Though they stumble, they will never fall, for the Lord holds them by the hand."**— Psalm 37:24
