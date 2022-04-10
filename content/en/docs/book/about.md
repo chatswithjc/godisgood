@@ -22,13 +22,9 @@ We believe our mission is introduce people to the GOOD NEWS of God’s Kingdom a
 
 My hope with this book is that you give God another chance. Whether you don't think God is real, or can be known or if religious has let you down, it's never too late to give God a try.
 
-## My Story
-
-My story is common to everyone. I have experienced the suffering of mental health (anxiety, depression, obsession, fear), addictions, religion and am here to say no one is beyond healing, rescue, repair in Jesus. Jesus Christ is the answer for every problem!
-
 ## Who is this book for?
 
-This eBook is for everyone because God invites everyone to the Kingdom.
+This eBook is for everyone because God invites everyone to the Kingdom. Jesus Christ is the answer for every problem!
 
 ## TL;DR (Too Long Didn't Read)
 
