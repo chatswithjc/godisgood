@@ -14,6 +14,9 @@ weight: 170
 toc: true
 ---
 
+{{< video ratio="16x9" attributes="controls poster='https://s3.us-east-2.amazonaws.com/godisgood.io/TwoRoads-mOJ1wUcP804.jpg'" mp4-src="https://s3.us-east-2.amazonaws.com/godisgood.io/TwoRoads-mOJ1wUcP804.mp4" >}}
+<br/>
+
 But as many as received Him (Jesus) to them, He gave the right to become God’s children,  to those who believe in Him (John 1:12). 
 
 So then when we come to God by faith and acknowledge our sins (our disobedience, our going our own way instead of His way), He is faithful and just to forgive us of our sins, and not only that but to cleanse us of all unrighteousness. He transforms our spirits into new creatures, and we immediately enter into His eternal life as we submit to His holy presence.

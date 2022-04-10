@@ -14,7 +14,6 @@ weight: 190
 toc: true
 ---
 
-
 One of the biggest fears that people face is the fear of lack. It's the fear that your needs won't be met - that you'll run out of resources and that God won't come through for you in time.
 
 You may be in a situation of lack that you've never been in before, in desperate need of finances or other resources to simply meet your basic needs. Maybe you're facing an emotional or spiritual lack. The spirit of fear might be attacking you, telling you that God cannot meet your needs and that you won't make it.

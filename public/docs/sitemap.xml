@@ -157,4 +157,10 @@
         <changefreq>weekly</changefreq>
         <priority>0.5</priority>
       </url>
+      <url>
+        <loc>https://godisgood.io/docs/book/next-steps/</loc>
+        <lastmod>2020-10-13T15:21:01+02:00</lastmod>
+        <changefreq>weekly</changefreq>
+        <priority>0.5</priority>
+      </url>
       </urlset>

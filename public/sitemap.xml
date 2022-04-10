@@ -185,6 +185,13 @@
   </url>
   
   <url>
+    <loc>https://godisgood.io/docs/book/next-steps/</loc>
+    <lastmod>2020-10-13T15:21:01+02:00</lastmod>
+    <changefreq>weekly</changefreq>
+    <priority>0.5</priority>
+  </url>
+  
+  <url>
     <loc>https://godisgood.io/contributors/henk-verlinde/</loc>
     <lastmod>2020-10-06T08:50:45+00:00</lastmod>
     <changefreq>weekly</changefreq>
