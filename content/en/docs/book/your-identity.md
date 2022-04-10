@@ -70,7 +70,7 @@ The suspicion, prejudice, and demeaning attitudes between Jews and Gentiles (non
 
 *- Source: [Fifty Reasons Why Jesus Came to Die by John Piper](https://www.desiringgod.org/books/fifty-reasons-why-jesus-came-to-die)*
 
-### Your True Identity in Christ
+## Your True Identity in Christ
 
 **Extraordinary people don't just happen.** Ordinary people do happen.
 
@@ -121,4 +121,68 @@ When you let God love you, He stamps you as **"PERFECT"** in His eyes. Your fles
 - I am **complete** in Him *Colossians 2:10*
 - I have the mind of Christ *1 Corinthians 2:16*
 - I am being **transformed** into His image *2 Corinthians 3:18*
+
+## From Ego to Oneness
+
+I like to describe my journey on this earth as a **relationship with God,** from "ego" to "wholeness."
+
+"Ego" is the source of our fragmentation, our disconnection, our dis-ease, and all our relational conflicts. "Ego" in Jungian thinking is consciousness, which in turn fights unconsciousness in order to fit culture, religion, and morality. "Neurosis" develops in very personalized shapes and modes as result of such tension. The more the "ego" attempts to control the "shadow" the more "neurosis" will be a part of such personality.
+
+Cultural mores, religion, and morality are collective ways to control what is considered evil. "Ego" is the force which keeps things in "order," thus walking further and further away from "wholeness." **A relationship with God** reverses the direction of the process.
+
+Carl G. Jung said, "An inflated consciousness is always egocentric and conscious of nothing but its own existence. \[selfish\] It is **incapable** of learning from the past, **incapable** of understanding contemporary events, and **incapable** of drawing right conclusions about the future. **It is hypnotized by itself and therefore cannot be argued with.** It inevitably dooms itself to calamities that must strike it dead." (Carl G. Jung, 1944. CW 12.p. 563)
+
+A few months ago I read the story of one of my favorite mystics.
+
+Her name is "Julian of Norwich." No one has been able to identify her real name. She is simply named after the church in Norwich, England—St. Julian’s—where she had her little "anchor-hold." It was one window of her small room which looked into the sanctuary for mass, and another opened to the street where the people would come by for her counsel and prayer.
+
+Julian experienced her “showings,” as she called them, on the night of May 8, 1373. Then she lived in the same room for twenty years, trying to process and communicate what she had experienced on that one night. Julian wrote about those "showings" (or revelations) in her book _**"Revelations of Divine Love,"**_ which happened to be the first book published in English by a woman! Fascinating!
+
+Julian experienced and wrote of a **compassionate, RELATIONAL, and joyful God.** All mystics tend to speak of a relationship with God instead of religion. She writes: **“For before he (God) made us, he loved us; and when we were made, we loved him. And THIS IS OUR SUBSTANTIAL GOODNESS, the substantial goodness in us of the Holy Spirit. It is nothing we create; it is our substance.** God revealed to me that there may and there will be nothing at all between God and the soul. **And in this endless love, the human soul is kept whole as all the matter of creation is kept whole.”**
+
+Here is the most fascinating aspect of Julian's writing regarding her "showings" or revelations. She uses the Middle English word **“oneing”** to describe this **whole-making** work of God, which is what I describe as the journey towards wholeness.
+
+Did you know God is always **"oneing everything"**? He is always bringing lose ends together. God is always mending broken relationships. God is forever taking the broken pieces and **"oneing"** them in a sacred task of wholism. God makes twos, and threes, (trinities), and fours, and divisions, and dichotomies, and inconsistencies, and polarities, and dualisms, **INTO ONE.**
+
+As Julian herself explains, \[My explanations\] **“God wants us to know that this beloved soul \[unity\] that we are, is preciously knitted to him in its making by a knot so subtle and so mighty that it is** "oned" **\[united, made one\] with God. In this** "oneing" **it is made endlessly** holy." **\[Noticed, that holy, health, whole, all come from the same root word: complete, harmonious, integrated, one\]. "Furthermore," Julian says, "he \[God\] wants us to know that all the souls \[people\] which are one day to be saved in heaven without end are knit in this same knot and united in this same union, and made holy in this one identical holiness.”** Profound statements!
+
+I wish I could make this shorter.
+
+The Apostle Paul speaks of this journey from "ego" to "wholeness," what Julian called **"oneing,"** in a magnificent chapter of the book to the Ephesians. I will only quote excerpts of chapter 4 (The Message). It's a magnificent chapter!
+
+"In light of all this, here’s what I want you to do. While I’m locked up here, a prisoner for the Master, I want you to get out there and walk—better yet, run!—**on the road God called you to travel.** I don’t want any of you sitting around on your hands. I don’t want anyone strolling off, down some path that goes nowhere. And mark that you do this with humility and discipline—not in fits and starts, but steadily, **pouring yourselves out for each other in acts of love, alert at noticing differences and quick at mending fences.** \[Notice the emphasis: moving from "ego" (self) to "wholeness," community and harmony\]
+
+"You were all called to travel on the same road and in the same direction, **so stay together, both outwardly and inwardly.**
+
+\[And here is the the key verse\]
+
+You have ONE Master, ONE faith, ONE baptism, ONE God and Father of ALL, who rules over ALL, works through ALL, and is present in ALL. EVERYTHING you are and think and do is PERMEATED WITH ONENESS. \[Wholeness\]
+
+"But that doesn't mean you should all look and speak and act the same. Out of the generosity of Christ, each of us is given his own gift."
+
+"He handed out gifts above and below, filled heaven with his gifts, filled earth with his gifts. He handed out gifts of apostle, prophet, evangelist, and pastor-teacher to train Christ’s followers in skilled servant work, working within Christ’s body, **THE CHURCH, UNTIL we’re ALL moving rhythmically and easily with each other, efficient and graceful in response to God’s Son, fully mature adults, fully developed within and without, fully alive like Christ."**
+
+**"God wants us to grow up, to know the WHOLE truth and tell it in LOVE**—like Christ in everything. We take our lead from Christ, who is the source of everything we do. He keeps us in step with each other. **His very breath and blood flow through us, nourishing us so that we will grow up HEALTHY in God, robust in LOVE."**
+
+"And so I insist—and God backs me up on this—that there be no going along with the crowd, the empty-headed, mindless crowd. They’ve refused for so long to deal with God that they’ve lost touch not only with God but with reality itself. They can’t think straight anymore. **Feeling no pain,** \[no shame, no guilt\] they let themselves go in sexual obsession, addicted to every sort of perversion."
+
+"But that’s no life for you. You learned Christ! Since, then, we do not have the excuse of ignorance, everything—and I do mean everything—connected with that old way of life has to go. It’s rotten through and through. Get rid of it! And then take on an entirely **NEW WAY OF LIFE—a God-fashioned life, a life renewed from the inside and working itself into your conduct as God accurately reproduces his character in you."**
+
+"What this adds up to, then, is this: **no more lies, no more pretense. Tell your neighbor the truth. In Christ’s body WE'RE ALL CONNECTED TO EACH OTHER, after all. When you lie to others, you end up lying to yourself."** \[The Apostle Paul goes back and forth from "Ego" (Sinful, fragmented way, to wholeness, God's way!\]
+
+**"Go ahead and be angry. You do well to be angry—but don’t use your anger as fuel for revenge. And don’t stay angry. Don’t go to bed angry. Don’t give the Devil that kind of foothold in your life."**
+
+**"Did you use to make ends meet by stealing? Well, no more! Get an honest job so that you can help others who can’t work."**
+
+"Watch the way you talk. Let nothing foul or dirty come out of your mouth. Say only what helps, each word a gift."
+
+"Don’t grieve God. Don’t break his heart. His Holy Spirit, moving and breathing in you, is the most intimate part of your life, making you fit for himself. Don’t take such a gift for granted."
+
+"Make a clean break with all cutting, backbiting, profane talk. **BE GENTLE WITH ONE ANOTHER, SENSITIVE. FORGIVE ONE ANOTHER as quickly and thoroughly as God in Christ forgave you."**
+
+When I read this chapter, I say, **"Wow!"** An amazing spiritual journey from "Ego" to "Wholeness."
+
+Why Am I so passionate about what I say and do? Because I believe we are living in the last days!
+
+Nothing will protect you from the confusion coming upon the masses on this planet, except the presence of God, His grace, His love, His power, **His wholeness inside emotionally, and outside in your relationships!** His permeating **ONENESS,** as the apostle Paul calls it.
 
