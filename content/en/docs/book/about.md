@@ -59,12 +59,11 @@ Phone or Text: (623) 323-8645, Email: hello@chatswithjesus.io. Phoenix, Arizona.
 
 Religion is cold, performance driven, information-based works-based. 
 
-Jesus Christ absolutely did not come to this earth to establish another religion! He came to **re-establish God's relationship with you**. Jesus came preaching "The Kingdom of Heaven”; not "the church”. The Kingdom of God is inside of your heart where God longs to dwell if you accept Him.
+> Jesus Christ absolutely did not come to this earth to establish another religion! He came to **re-establish God's relationship with you**. Jesus came preaching "The Kingdom of Heaven”; not "the church”. The Kingdom of God is inside of your heart where God longs to dwell if you accept Him.
 
 **To grow in your faith, it's more important that you spend time with Jesus in prayer, fasting, reading the Bible than being busy going to church or doing random acts of kindness all the time. Showing compassion in goood works is a result of personal intimacy with Jesus.**
 
 *Source: [https://www.keytorevival.org/media-admonition/](https://www.keytorevival.org/media-admonition)*
-
 
 * [30 Days to Thinking Right](https://www.thefathersfriends.org/need-help-start-here)
 * [Watch the Bible](https://bibleproject.com)
