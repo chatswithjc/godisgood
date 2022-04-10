@@ -41,12 +41,22 @@
 [[main]]
   name = "Your Purpose"
   url = "/docs/book/your-purpose/"
-  weight = 20
+  weight = 30
 
 [[main]]
-  name = "Good News"
-  url = "/docs/book/gospel-good-news/"
-  weight = 20
+  name = "Your Purpose"
+  url = "/docs/book/your-purpose/"
+  weight = 40
+
+[[main]]
+  name = "Your Identity"
+  url = "/docs/book/your-identity/"
+  weight = 50
+
+[[main]]
+  name = "Who is Jesus?"
+  url = "/docs/book/who-is-jesus-christ/"
+  weight = 60
 
 # [[social]]
 #   name = "GitHub"
