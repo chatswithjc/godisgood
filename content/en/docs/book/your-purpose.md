@@ -14,6 +14,11 @@ weight: 100
 toc: true
 ---
 
+{{< video ratio="16x9" attributes="controls poster='https://s3.us-east-2.amazonaws.com/godisgood.io/Fathers-Love-Letter-vCoDTUXHMeg.jpg'" mp4-src="https://s3.us-east-2.amazonaws.com/godisgood.io/Fathers-Love-Letter-vCoDTUXHMeg.mp4" >}}
+
+<br/>
+
+
 ## There are no accidents in God's universe
 
 "We humans keep brainstorming options and plans, BUT God's PURPOSE prevails." Proverbs 19:21 (The Message)
