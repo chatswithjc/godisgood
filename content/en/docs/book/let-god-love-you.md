@@ -15,6 +15,7 @@ toc: true
 ---
 
 {{< video ratio="16x9" attributes="controls poster='https://s3.us-east-2.amazonaws.com/godisgood.io/TwoRoads-mOJ1wUcP804.jpg'" mp4-src="https://s3.us-east-2.amazonaws.com/godisgood.io/TwoRoads-mOJ1wUcP804.mp4" >}}
+
 <br/>
 
 But as many as received Him (Jesus) to them, He gave the right to become God’s children,  to those who believe in Him (John 1:12). 

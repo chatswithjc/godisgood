@@ -259,24 +259,6 @@ The language of the 5 parables follows the "agro-bio-linguistic" mindset of the 
 
 ## Wheat and Weeds
 
-**Because it reveals the VISION OF GOD for those who are RECEPTIVE, while it CONCEALS it from those who are not open to a relationship with Him.**
-
-Jesus is speaking in this parable of **HIS OWN CHURCH, THE CHURCH OF GOD IN HIS TIME.** Up to that moment Jesus ministry was limited to Palestine. He is now opening a new chapter for His disciples to understand. He is revealing that the entire world would be the stage of God's action. Remember that Jesus, the religious leaders, the pharisees of the church, were all part of the church of God at that time. Jesus, by birth was a part of the religious community of the time. He, however, stood up to the official church of His time, and spoke up the truth as a prophet of God. **"He came to his own and they rejected Him"** (John 11:1). He was persecuted, ostracized, and ultimately abandoned at His crucifixion by his own people.
-
-Here is the key to the prophetic nature of this parable.
-
-**"...the knowledge of the SECRETS of the kingdom of heaven has been given to you, \[Seekers of God\] but NOT to them \[The religious leaders of the church\]**
-
-"Whoever has, will be given more, and they will have an abundance. Whoever does not have, even what they have will be taken from them. This is why I speak to them in parables:"
-
-“Though seeing, they do not see; though hearing, they do not hear or understand."
-
-"For this people’s heart \[Religious leaders of the church, pastors, theologians, pharisees, legalists\] HAS become calloused; they hardly hear with their ears, and they have closed their eyes. Otherwise they might see with their eyes, hear with their ears, understand with their hearts and turn, and I would heal them."
-
-The word of prophecy is not so much about prediction, as it is about penetrating the hardened condition of the human heart with a critical message from God. The purpose of prophecy is to open the spiritual eyes to the reality of God's will and presence. God's prophetic messages are particularly for His people, as a way to encourage them and direct them.
-
-### The Parable of the Wheat and Weeds
-
 "Jesus told them another parable: “The kingdom of heaven is like a man who sowed good seed in his field. But while everyone was sleeping, his enemy came and sowed weeds among the wheat, and went away. When the wheat sprouted and formed heads, then the weeds also appeared. “The owner’s servants came to him and said, ‘Sir, didn’t you sow good seed in your field? Where then did the weeds come from?’ “‘An enemy did this,’ he replied.
 
 **“The servants asked him, ‘Do you want us to go and pull them up?’**
@@ -293,97 +275,7 @@ The word of prophecy is not so much about prediction, as it is about penetrating
 
 1) The first thing I want you to notice is the fact that THE BAD SEEDS PLANTED BY THE ENEMY IN THE MIDDLE OF THE NIGHT, WAS A MALICIOUS, TERRORIST ATTACK AGAINST THE OWNER OF THE FARM
 
-It was common practice in ancient times to plant bad seed in your enemy's field in the middle of the night. In fact, it was a crime under Roman law. It was an attempt to bankrupt your neighbor's financial status and ruin his family.
-
-Such act was the equivalent of dropping a bomb on your enemy's house to kill him and his family. Throwing bad seed in your enemy's farm, was then what today we would consider a terrorist attack. Malicious to the core.
-
-**That's the nature of the devil's activities.**
-
-The devil is described as a roaring lion (1 Peter 5:8). He is described as the one behind all human conflict. (Ephesians 6:12). Marriage conflicts that destroy families are not just "human accidents." They are masterminded by demonic forces. The devil is a liar (John 8:44). The devil is your # 1 accuser before God. (Revelation 12:10). God does not condemn (Romans 8:1), the devil does. He steals and kills. (John 10:10) While God offers life, abundant life, the devil wants to suck life out of you.
-
 2) The second thing I want you to notice is the UNUSUAL PARADIGM OF THE KINGDOM OF GOD!
-
-The heartbeat of this parable is a question: **"Should we pull out the weeds?"**
-
-This question goes to the heart of one of the greatest temptations among **religious people wanting to serve God: the impulse to sort the good people from the bad people, the saints from the sinners, the church from the world, the saved from the damned.**
-
-**Churches and religion are full to the brim of this sort of thing. Righteous crusades to weed out the sinners.**
-
-But what does the farmer say?
-
-The farmer says, **Don't get into the weeding business.** If you do, you'll pull up the good with the bad. Here is the principle to remember.
-
-WEEDS ARE NOT GOOD, FOR SURE! BUT WEEDING? WEEDING IS WORSE. WEEDING IS FORBIDDEN IN THE ILLOGICAL, UPSIDE- DOWN KINGDOM OF GOD
-
-So just let the good and the bad live alongside each other. Trust that God will sort it all out in the end. **Sorting saints from sinners isn't your job. So let it be.**
-
-Just imagine a bunch of followers of God, mingling with people without the anxiety to decide "who is right, and who is wrong?"
-
-**And let's be clear. The farmer has lost his mind according to the laws of farming. I know. It's illogical. It goes against sound agricultural practice.** What farmer doesn't weed? What the workers are suggesting is the **RIGHT THING TO DO.** From a farming perspective the farmer is an idiot. But you see, while **RELIGION** teaches you what's right and wrong, God shows you His heart! That's the key to life in His Kingdom.
-
-Against all logic the farmer says, **Leave it alone. Let the weeds and the wheat grow together. On this farm we aren't going to weed.**
-
-But isn't this a recipe for disaster? Doesn't God need our help in sorting out the good guys from the bad guys? Doesn't God need spiritual leaders with spiritual discernment to monitor the borders of the Kingdom? Doesn't God need a strong wall in the border to only allow "legal" people to walk in? Isn't that common sense? What about some religious drones since we are at it?
-
-**Apparently not, according to God. Our job, it seems, is simply to live alongside each other, wheat and the weeds.**
-
-And here is the truth you and I must understand. I think a part of God's illogical logic in saying "no weeding here" is that we're horrible, often tragically so, in making these distinctions. Who are the real good guys? Who are the real bad guys? Are churches getting this distinction right?
-
-My take: I think the churches, religion, denominations, sects, Christians, get this wrong more often than they get this right. Churches, way more than they'd care to admit, get into the weeding business only to discover that they can't tell the wheat from the weeds. The more tight their dogmas and doctrinal beliefs are the more they are tempted to weed the farm.
-
-More, I'd go on to make this very provocative statement:
-
-TO GET INTO THE WEEDING BUSINESS, AGAINST GOD'S WILL, IS WHAT MARKS YOU AS WEED. Ouch.... WEEDING IS WHAT MAKES YOU ONE OF THE BAD GUYS IN THE KINGDOM OF GOD.
-
-Robert Capon, in his book **_"Kingdom, Grace, Judgment: Paradox, Outrage, and Vindication"_** in the Parables of Jesus has an interesting observation about this parable. Specifically, he notes that the **root of the Greek word--_"aphete"_\--translated as** _"let"_ **in the command of the farmer** ("LET both grow together") **has two related meanings in the Bible. One meaning is the meaning found in the translation of the NLT, the notion of** _"to permit"_ **or** _"to allow_." **But the more common meaning of** _"aphete"_ **in the Bible is** _"to suffer"_, _"to endure"_, _"to tolerate"_, and _"to forgive."_ **This last interpretation adds profound meaning to the words of the suffering Farmer. It introduces us to the infinite pain of God.** This is the word Jesus uttered from the cross: "Father, _"forgive them"_ (Let them off the hook), for they know not what they do." **This concept, paradoxically re-interprets the paradigm of the religious hell. It's veiled by the unimaginable** PAIN OF GOD.
-
-This concept really magnified for me the entire meaning of this parable, as a subversive glimpse of the Kingdom of God.
-
-Suddenly I was reminded that any religious "nut" can do weeding against the will of God. Anyone can judge. Anyone can get into the religious weeding business. In fact, there is good money in that business! All you need is a degree from a seminary, a bunch of fanatics, zealots Pharisees, enough paranoia, some conspiracy theories, and there you go... **"Let's weed the farm once and forever."** It sounds like persecution? Doesn't it?
-
-**Rather than weeding the farm, the farmer is asking the workers to forgive the weeds, to SUFFER THEIR EXISTENCE. This is tough!**
-
-We might say this upside-down parable of the Kingdom is presenting us with two visions of Kingdom life.
-
-* **On the one side are the weeding Christians, those wanting to identify, sort out and burn the weeds. Define dogma and doctrine. "Decide who is for us and who is against us." Identify the bad guy in the kingdom.**
-
-* **And on the other side are the TRUE FOLLOWERS OF GOD WHO LIVE ALONGSIDE THE WEEDS, DEAL WITH THE MESS, THE ENTANGLED ROOTS but manifest the grace of the Farmer, the forgiveness and the mercy of the Farmer, and they are tolerant and patient as the Farmer is.** They are the real good farmers. They obey the Farmer. They follow Him. They have a relationship with Him and know the Farmer's heart. **They would rather LOVE and SUFFER, than to be RIGHT and be UNLOVING!**
-
-And, you and I know this: the weeding Christians and religious people will always have all the best arguments on their side. Forget "winning" a debate with them. "Weeding," they say, "is good farming practice. It makes sense to keep the next generation in line. It's the sensible and right thing to do."
-
-But, you see, Friend, **the logic of forgiving, enduring, tolerating, LOVING the weeds and allowing them to grow alongside? That's no logic at all.**
-
-This parable has profound implications as to how we approach the people who come to us. If I read this parable right, God calls us to proclaim His message of love, grace, transforming power to **ALL** alike. This parable reminds me I don't know who is **"wheat"** and who is **"weed."** I must be inclusive, welcoming, loving, compassionate, merciful, gentle to all people. In fact, as a Pastor I must make sure that "farmers" are not out there pulling "weeds." Those "farmers" are the darkest secret of churches who consider themselves to be carriers of the "truth of God." They are the modern Pharisees. They are the ones who want to stone the woman caught having sex. They judge the Zacheous of this world. They are quick to judge the woman who crawls under the table to anoint Jesus' feet with a mix of perfume and tear of gratefulness.
-
-Let the paradox sink in, for you are in the farm... **It's only the foolishness of the cross that explains this upside down parable of Jesus.**
-
-* There will be a large visible "church" or world religion that will desperately attempt to save the world, the planet by a mix of religion, technology, science and politics. It's not hard to believe it, if you are watching the way things are rolling now.
-
-* There will be, I believe, a fragmented, invisible, perhaps underground church that will be persecuted for for resisting to worship a false system of salvation.
-
-## The Parable of the Wheat and Weeds
-
-"Jesus told them another parable: “The kingdom of heaven is like a man who sowed good seed in his field. But while everyone was sleeping, his enemy came and sowed weeds among the wheat, and went away. When the wheat sprouted and formed heads, then the weeds also appeared. “The owner’s servants came to him and said, ‘Sir, didn’t you sow good seed in your field? Where then did the weeds come from?’ “‘An enemy did this,’ he replied.
-
-**“The servants asked him, ‘Do you want us to go and pull them up?’**
-
-“‘No,’ he answered, ‘because while you are pulling the weeds, you may uproot the wheat with them. 30 Let both grow together until the harvest. At that time I will tell the harvesters: First collect the weeds and tie them in bundles to be burned; then gather the wheat and bring it into my barn.’”
-
-**"Then he left the crowd and went into the house. His disciples came to him and said, “EXPLAIN TO US THE PARABLE OF THE WEEDS in the field.”**
-
-**"He answered, “The one who sowed the good seed is the Son of Man.** \[God in Jesus\] (Daniel 7:13-14). **The field is the WORLD,** \[not the church\] **and the good seed stands for the people of the kingdom.** \[Followers of God\] **The weeds are the people of the evil one, and the enemy who sows them is the devil. The harvest is the END OF THE AGE,** \[The Second Coming of Jesus\] **and the harvesters are angels."**
-
-**The Son of Man** \[God-Jesus\] **will send out his angels, and they will weed out of His kingdom \[the kingdom of God\] everything that causes sin and all who do evil.** \[Noticed that the harvesters will pull out the weeds first\] **They will throw them into the blazing furnace, where there will be weeping and gnashing of teeth.**
-
-**"Then the RIGHTEOUS will shine like the sun in the "kingdom of their Father." Whoever has ears, let them hear."**
-
-I wrote previously,
-
-1) The first thing I want you to notice is the fact that THE BAD SEEDS PLANTED BY THE ENEMY IN THE MIDDLE OF THE NIGHT, WAS A MALICIOUS, TERRORIST ATTACK AGAINST THE OWNER OF THE FARM
-
-2) The second thing I want you to notice is the UNUSUAL PARADIGM OF THE KINGDOM OF GOD!
-
-**Today, I want to point out two more aspects of this parable:**
 
 3) The third thing I want you to notice in this parable is the NATURE OF THE WEED.
 
@@ -429,8 +321,6 @@ Let me use again the example of cancer. Cancer is simple a **"wild cell that cho
 
 That's what the"weeds" of Jesus' parable are all about. When people talk about obeying the 10 commandments as the mark of God's people I increasingly feel it's such a "cheap," anemic image of something which is much greater. "Weeds" live by different "laws." The "wheat" grows by the law of purposeful life, which is to produce grain. The "weeds" grow by laws that look similar to the wheat but their purpose is totally different. "Weeds" will entangle the roots of the wheat and kill them if they can.
 
-Here are 3 thoughts I want to leave with you:
-
 * **First. The weeds are the seed of the devil in the farm of this world. They are all over the place mixed with the wheat.** God is love. His law is **RELATIONAL WHOLENESS OR LOVE.** The devil is the **anti-LOVE** force of the universe. As love creates wholeness, the absence of love creates dualism, fragmentation, **DIS-EASE,** cancer, and brokenness. The weeds are living in open rebellion to the very foundation of God's Kingdom. In the Bible that condition is also translated as "iniquity" (Matthew 13:41- KJV)
 
 * **Here is my second thought. If the "weeds" are "weeding" the field, they are disobeying God's order, even though they may keep the 10 commandments. Isn't that an interesting predicament for law abiding religious people?** You are lawless according to the law of God's life and love, if you are wedding the farm. You are on your own. You are operating by your own laws...
@@ -453,7 +343,7 @@ Remember the **"Rich Young Ruler"** who came to Jesus? He kept the 10 commandmen
 
 There was only one little thing missing in this powerful, wealthy guy's religious "To Do List." **BE LOVING!** He lost it all! (Luke 18:18-22)
 
-4) The fourth thing I want you to ask yourself in view of this parable is this: HOW DO YOU KNOW IF YOU ARE WHEAT OR WEED?
+1) The fourth thing I want you to ask yourself in view of this parable is this: HOW DO YOU KNOW IF YOU ARE WHEAT OR WEED?
 
 **1) Matthew 13:37, says, "The good seed, these are the sons \[and daughters\] of the Kingdom.**
 
@@ -480,6 +370,16 @@ John 13:35 says, **"In this, the world will know you are WHEAT, they will know y
 Two living organisms, the weed and the wheat, living by different laws: **One grows to produce good crop, the other to produce nothing... just make the life of the wheat as miserable as possible!**
 
 **In the end false religion will not be about false doctrines but the ABSENCE OF LOVE** (Mathew 24:12 - The Message)
+
+**the logic of forgiving, enduring, tolerating, LOVING the weeds and allowing them to grow alongside? That's no logic at all.**
+
+This parable has profound implications as to how we approach the people who come to us. If I read this parable right, God calls us to proclaim His message of love, grace, transforming power to **ALL** alike. This parable reminds me I don't know who is **"wheat"** and who is **"weed."** I must be inclusive, welcoming, loving, compassionate, merciful, gentle to all people. In fact, as a Pastor I must make sure that "farmers" are not out there pulling "weeds." Those "farmers" are the darkest secret of churches who consider themselves to be carriers of the "truth of God." They are the modern Pharisees. They are the ones who want to stone the woman caught having sex. They judge the Zacheous of this world. They are quick to judge the woman who crawls under the table to anoint Jesus' feet with a mix of perfume and tear of gratefulness.
+
+Let the paradox sink in, for you are in the farm... **It's only the foolishness of the cross that explains this upside down parable of Jesus.**
+
+* There will be a large visible "church" or world religion that will desperately attempt to save the world, the planet by a mix of religion, technology, science and politics. It's not hard to believe it, if you are watching the way things are rolling now.
+
+* There will be, I believe, a fragmented, invisible, perhaps underground church that will be persecuted for for resisting to worship a false system of salvation.
 
 Do you trust the farmer (Jesus Christ) to keep you healthy, vibrant, alive in the midst of the weeds until the harvest time?
 

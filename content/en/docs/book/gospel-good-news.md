@@ -14,7 +14,9 @@ weight: 140
 toc: true
 ---
 
-What is the Gospel?? I don’t think most people really know.
+{{< video ratio="16x9" attributes="controls poster='https://s3.us-east-2.amazonaws.com/godisgood.io/Gospel-Explained-In-12-Minutes_Joseph+Prince-GFSqkINFwVM.jpg'" mp4-src="https://s3.us-east-2.amazonaws.com/godisgood.io/Gospel-Explained-In-12-Minutes_Joseph+Prince-GFSqkINFwVM.mp4" >}}
+
+<br/>
 
 
 * People are not going to fully appreciate the **good news** until they first know the **bad news.** The bad news is that we have **ALL** have sinned against God and have fallen short of His standards. **Good and bad people alike!** Our nature is fragmented. Our condition, just by breathing on this planet and having our parents genes, is **SINFUL.** Good people need God to be really good, as much as bad people do! And if we don't surrender to God, we will find ourselves, the good and the bad in us, fighting against God! (Romans 7-8; Galatians 5)
