@@ -1,7 +1,7 @@
 ---
 title: "God is Good"
 description: ""
-lead: "God is Good"
+lead: "Who is God? God is prescence, a person (Jesus Christ), but also consciousness. God is everywhere always - consciousness."
 date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
