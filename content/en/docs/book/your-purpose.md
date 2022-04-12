@@ -18,18 +18,15 @@ toc: true
 
 <br/>
 
-
 ## There are no accidents in God's universe
 
-"We humans keep brainstorming options and plans, BUT God's PURPOSE prevails." Proverbs 19:21 (The Message)
+"We humans keep brainstorming options and plans, BUT God's PURPOSE prevails." *(Proverbs 19:21, The Message)*
 
 Everything, is either caused by God, or allowed by God. You either believe in the supreme, unlimited, power of God or not! You either believe that when you surrender to God, He takes over totally, or you live with a part-time God the rest of your life.
 
-The Bible says that your heavenly Father has a plan for each of our individual lives (FathersLoveLetter.com). To fulfill that plan is nothing less than ultimate success in life. But we need to hear Him, so that He can lead us into His plan for our lives. But to do that, we need to be connected to Him through a personal loving relationship.
+The Bible says that your heavenly Father has a plan for each of our individual lives ([FathersLoveLetter.com](https://fathersloveletter.com)). To fulfill that plan is nothing less than ultimate success in life. But we need to hear Him, so that He can lead us into His plan for our lives. But to do that, we need to be connected to Him through a personal loving relationship.
 
-God loves you with an everlasting love and wants to bless you and fellowship with you! 
-
-But Christ proved God’s passionate love for us by dying in our place while we were still lost and ungodly! (Romans 5:8, TPT)
+God loves you with an everlasting love and wants to bless you and fellowship with you!  But Christ proved God’s passionate love for us by dying in our place while we were still lost and ungodly! *(Romans 5:8, TPT)*
 
 Why should you care? Well, because deep down you know you are accountable to God because God has placed the desire for love and eternity in every heart.
 
@@ -59,9 +56,9 @@ Forgetting the **PAST,** looking **FORWARD,** I **PRESS ON.** Can you feel the f
 
 Two things are required:
 
-**1) Honesty. Own your world. Own the dark part of your life. Stand up and say to yourself: I am responsible for everything I am feeling right now.** In the name of Jesus, I will stop blaming people. I will stop victimizing myself. **I will ask God to overcome the demonic forces that have been keeping me chained to my past!** I will stop feeling shameful, guilty, and I will assume responsibility for everything that happened in my life... Whether I was guilty or not. Over! New page. New chapter. I got God, the Creator of the universe, on my side!
+**HONESTY. Own your world. Own the dark part of your life. Stand up and say to yourself: I am responsible for everything I am feeling right now.** In the name of Jesus, I will stop blaming people. I will stop victimizing myself. **I will ask God to overcome the demonic forces that have been keeping me chained to my past!** I will stop feeling shameful, guilty, and I will assume responsibility for everything that happened in my life... Whether I was guilty or not. Over! New page. New chapter. I got God, the Creator of the universe, on my side!
 
-**2) Surrender your past to God. Everything. Your sins. Your mistakes. Your sins of omission and commission. The people who hurt you. The people you hurt. SURRENDER ALL TO HIM** Go ask people forgiveness in the power of God. Dial that number and call. Go knock on a door. Tell people, **"I am sorry. I hurt you. Would you forgive me? I want to live for God from now on."** The bible calls that act, **confession.** Confession is the act of giving to God all the bad stuff you have done. Confession means asking people forgiveness for sinning against them. Confession gives you a new chapter. Confession means you have nothing to hide. You are a clean vessel. Confession means **YOU TRUST GOD!**
+**SURRENDER your past to God. Everything. Your sins. Your mistakes. Your sins of omission and commission. The people who hurt you. The people you hurt. SURRENDER ALL TO HIM** Go ask people forgiveness in the power of God. Dial that number and call. Go knock on a door. Tell people, **"I am sorry. I hurt you. Would you forgive me? I want to live for God from now on."** The bible calls that act, **confession.** Confession is the act of giving to God all the bad stuff you have done. Confession means asking people forgiveness for sinning against them. Confession gives you a new chapter. Confession means you have nothing to hide. You are a clean vessel. Confession means **YOU TRUST GOD!**
 
 Augustine once said, **“The confession of bad works is the beginning of good works.” We start by dealing with our past. The Bible says,** “If we confess our sins to God, he will keep his promise and do right: he will forgive us our sins and PURIFY us from all our wrongdoing” (1 John 1:9 TEV).
 
@@ -71,21 +68,15 @@ Augustine once said, **“The confession of bad works is the beginning of good w
 
 One of the things that I often confront in dealing with people is their inability to define their PURPOSE because of guilt and shame. The devil will do every possible thing to tempt you into something he can later on blame you for. Have you found that out? He uses people to accuse you, to make you feel like to have no right to get up in the name of God, and fulfill your purpose. That attitude is always demonic.
 
-Anything that distracts your pivotal relationship with God, and your purpose for this life, is demonic and RELIGIOUS!
+Anything that distracts your pivotal relationship with God, and your purpose for this life, is demonic and RELIGIOUS! Here is the call from Jesus to fulfill your purpose in the next DECADE. 
 
-Here is the call from Jesus to fulfill your purpose in the next DECADE. 
-
-"Let me tell you why you are here. You're here to be salt-seasoning that brings out the God-flavors of this earth. If you lose your saltiness, how will people taste godliness? You've lost your usefulness and will end up in the garbage. (Matthew 5: 13-16-The Message)
+> "Let me tell you why you are here. You're here to be salt-seasoning that brings out the God-flavors of this earth. If you lose your saltiness, how will people taste godliness? You've lost your usefulness and will end up in the garbage. *(Matthew 5: 13-16 Message)*
 
 "Here's another way to put it: You're here to be light, bringing out the God-colors in the world. God is not a secret to be kept. We're going public with this, as public as a city on a hill. If I make you light-bearers, you don't think I'm going to hide you under a bucket, do you? I'm putting you on a light stand. Now that I've put you there on a hilltop, on a light stand—shine! Keep open house; be generous with your lives. By opening up to others, you'll prompt people to open up with God, this generous Father in heaven."
 
-Ask God to transform your life, (Galatians 5-Fruit of the Spirit-The Message), cleanse you by His GRACE, and then claim your PURPOSE for the next decade.
+Ask God to transform your life, *(Galatians 5 Fruit of the Spirit)*, cleanse you by His GRACE, and then claim your PURPOSE for the next decade. Being **SALT** and a **LIGHT** for God, in this world calls for audacity, commitment, and spiritual strength from Him.
 
-Being salt and a light for God, in this world calls for audacity, commitment, and spiritual strength from Him.
-
-Let me assure you something: **if in the midst of the most chaotic circumstances, you can remember that you** have been called by God," you will regain your sense of significance and your will be re-energize! I know it without a doubt! That's what pulled me our of the biggest, most horrible mess of my life.
-
-Let it sink for a minute: **You, yes, you... You have been called by God to live for Him, with Him, and in behalf of Him in this life!**
+Let me assure you something: **if in the midst of the most chaotic circumstances, you can remember that you** have been called by God," you will regain your sense of significance and your will be re-energize! I know it without a doubt! That's what pulled me our of the biggest, most horrible mess of my life. Let it sink for a minute: **You, yes, you... You have been called by God to live for Him, with Him, and in behalf of Him in this life!**
 
 How you face your tests and tribulations will reveal your sense of significance. Do you remember, **"you have been called by God?"** This is an important question, because you never know when your life will end. You never know if you will have a chance to "succeed" at what you set your mind to accomplish. But you can always be certain you are fulfilling your call by God. We are here on this earth, to bring glory to God—to show how to love again, and again... nothing more, nothing less. The purpose of our lives is to learn how to love. To show others how to love. (Matthew 22: 37-40). The heart of significance is to be able to catch the fact that **God has called you to fulfill your purpose, this bringing glory to Him.**
 
@@ -98,18 +89,6 @@ There is only one thing I hang on to: and that is the fact that every thing that
 This is what I know. God is more than a rational, intellectual reality you can grab like a text book, to understand. **He is a RELATIONAL God.** You can only catch glimpses of Him in a personal relationship with Him. You catch glimpses of God when you read the Bible, when you pray, when He whispers in your mind. **What your relationship with God can not satisfy, your mind will never comprehend!** Are you with me, Friend? Followers of God in word, without a relationship with Him, are a contradiction in terms. **That's why I often say, it's easier to become a religious Christian and repeat the lingo, than it is to walk with God, read the Bible, contemplate God, meditate, reflect, and pray for enlightenment!** Without a relationship, you do not have depth to grasp the reality of God.
 
 **God Is Preparing You Today For Something Greater Tomorrow!**
-
-A traveler was visiting a logging area in the Pacific Northwest and was interested in seeing how the logs that would be used for furniture were chosen. As the logs came down the stream, the logger would suddenly reach out and hook one, pull it up, and then set it down. He would sometimes wait for a few minutes before grabbing another. There didn't seem to be any rhyme or reason to his choices.
-
-After a while, the visitor said to him, "I don't understand what you're doing. Can you please share with me so I can understand?"
-
-"These logs may all look alike to you," the logger said, "But I can recognize that a few of them are quite different. **The ones that I let pass came from trees that grew in a valley.** They were always protected from the storms. The grain is rather coarse.
-
-**"The logs that I pulled aside are from high up on the mountain,** where they were beaten by strong winds from the time they were quite small. That toughens the trees and gives them a fine grain. We save these logs for choice work. They're too good to be used for ordinary lumber."
-
-It was through the trying and testing that the logs were prepared for choice work.
-
-**The same could be said of you as a follower of God.**
 
 If you were to ask Moses how he became who he was, he would remind you of his trials with Pharaoh and his times of testing in the wilderness. If you were to ask Joseph, he would most likely refer back to his years as a slave, his imprisonment on a false accusation, and his imprisonment in Pharaoh's dungeon. Talk to Peter, and he would probably point back to his denial and how he learned many difficult yet important lessons.
 
@@ -151,17 +130,17 @@ Does God make you "good" or "holy"?
 
 If you want to be HOLY for God, if you want to LIVE, really LIVE God's life (John 10:10), experience the MOST PHENOMENAL RADICAL POWER OF GOD in the next 10 years, then you must see yourself as you are, be sorry for it, and want to see CHANGE in your life. Seek God as a "lost" person and you will FIND HIM!
 
-**"Blessed are the poor in spirit."** Matthew 5:3
+**"Blessed are the poor in spirit."** *(Matthew 5:3)*
 
-**"For everyone who exalts himself will be humbled, and he who humbles himself will be exalted."**Luke 18:14 (This was the verse that God repeated in my head 101 times when I was considering suicide in the darkest hour of my life. I recalled my Dad's voice repeating this verse to me... "Humble yourself... He will exalt you!" And today, 4 years later I can tell you that God fulfilled that promise in my life like I have never known ever before.)
+**"For everyone who exalts himself will be humbled, and he who humbles himself will be exalted."** *Luke 18:14* (This was the verse that God repeated in my head 101 times when I was considering suicide in the darkest hour of my life. I recalled my Dad's voice repeating this verse to me... "Humble yourself... He will exalt you!" And today, 4 years later I can tell you that God fulfilled that promise in my life like I have never known ever before.)
 
 **Spiritual poverty is a GODLY virtue! It is the TEST OF HOLINESS**
 
 Seekers of God bring a smile to the face of God. People who are passionate about God, His Word, praying and seeking His will are the only ones who find TRUE, ultimate satisfaction. The test of HOLINESS is very simple: "How much do you long for God in your life?" **Then show it!** Seek Him. Read your Bible every day. Pray. Meditate. 
 
-The more you follow God, the more you will become like Him. Why? Because the Spirit of God is always shaping you into the likeness of Jesus. Why? Because one day you will be living in heaven, a perfect place for people who have been perfected by God! In the book of Acts, we read that the religious leaders, when they saw Peter and John's boldness, realized "they had been with Jesus" (Acts 4:13). It overflowed from their lives. We can try to imitate Jesus, but that is not good enough. We become like Him through **"impartation"**—which is the Spirit of God living with you. As you walk with Him, live with Him, learn to hear His voice, you become more and more like Jesus. You find yourself thinking like Jesus. You begin to react like Jesus. Compassion for the poor and the disadvantaged is born in your heart. I have found myself in dialogue with myself sometimes saying, "This was not me, 15 years ago?" But you see, as I faced my own homelessness, my own dark moments, my own imperfection, the Spirit of God was right there transforming me, and reminding me, that the purpose of that experience, is to learn how to be compassionate towards others who face the same.
+The more you follow God, the more you will become like Him. Why? Because the Spirit of God is always shaping you into the likeness of Jesus. Why? Because one day you will be living in heaven, a perfect place for people who have been perfected by God! In the book of Acts, we read that the religious leaders, when they saw Peter and John's boldness, realized "they had been with Jesus" *(Acts 4:13)*. It overflowed from their lives. We can try to imitate Jesus, but that is not good enough. We become like Him through **"impartation"**—which is the Spirit of God living with you. As you walk with Him, live with Him, learn to hear His voice, you become more and more like Jesus. You find yourself thinking like Jesus. You begin to react like Jesus. Compassion for the poor and the disadvantaged is born in your heart. I have found myself in dialogue with myself sometimes saying, "This was not me, 15 years ago?" But you see, as I faced my own homelessness, my own dark moments, my own imperfection, the Spirit of God was right there transforming me, and reminding me, that the purpose of that experience, is to learn how to be compassionate towards others who face the same.
 
-The apostle Paul wrote, **"I have been crucified with Christ; IT IS NO LONGER I WHO LIVE, but CHRIST LIVES IN ME; and the life which I now live in the flesh I live by faith in the Son of God, who loved me and gave Himself for me"** (Galatians 2:20).
+Paul wrote, **"I have been crucified with Christ; IT IS NO LONGER I WHO LIVE, but CHRIST LIVES IN ME; and the life which I now live in the flesh I live by faith in the Son of God, who loved me and gave Himself for me"** *(Galatians 2:20)*.
 
 In the first century, the word "Christian" was a term of derision that meant "of the party of Christ." Are you a Christian because people see Christ in you, Friend? Are you His follower? That is God's plan for your life: to make you like Christ.
 
@@ -195,17 +174,12 @@ So, what is God's PURPOSE for your life?
 
 **Simply, To Learn To Be A LOVER like He is**
 
-1) To learn HOW to allow God to LOVE you.
+* To learn HOW to allow God to LOVE you.
+* To learn HOW to love God.
+* To learn HOW to love people.
+* To learn HOW to love self.
 
-2) To learn HOW to love God.
-
-3) To learn HOW to love people.
-
-4) To learn HOW to love self.
-
-Matthew 22: 37-40-The Message \*My notes \[ \]
-
-"Jesus said, "'**LOVE** the Lord your God with all your passion and prayer and intelligence.' This is the most important, the first on any list. \[Obediebce to God's first 4 commandments is about **LOVING** GOD\]
+"Jesus said, "'**LOVE** the Lord your God with all your passion and prayer and intelligence.' This is the most important, the first on any list. \[Obediebce to God's first 4 commandments is about **LOVING** GOD\] *(Matthew 22: 37-40 The Message)*
 
 But there is a second to set alongside it: '**LOVE** others as well as you **LOVE** yourself.' \[Obedience to God in the second set of 6 commandments is about **LOVING** PEOPLE AND SELF\]
 
@@ -217,24 +191,16 @@ At the end of the day you should be able to ask yourself, "Was I a lover today?"
 
 **LOVE** is all that matters in God's agenda!
 
-1 Corinthians 13:1-4-The Message
-
-"If I speak with human eloquence and angelic ecstasy but don't love, I'm nothing but the creaking of a rusty gate. If I speak God's Word with power, revealing all his mysteries and making everything plain as day, and if I have faith that says to a mountain, "Jump," and it jumps, but I don't love, I'm nothing. **If I give everything I own to the poor and even go to the stake to be burned as a martyr, but I don't love, I've gotten nowhere.** So, no matter what I say, what I believe, and what I do, I'm bankrupt without love."
+"If I speak with human eloquence and angelic ecstasy but don't love, I'm nothing but the creaking of a rusty gate. If I speak God's Word with power, revealing all his mysteries and making everything plain as day, and if I have faith that says to a mountain, "Jump," and it jumps, but I don't love, I'm nothing. **If I give everything I own to the poor and even go to the stake to be burned as a martyr, but I don't love, I've gotten nowhere.** So, no matter what I say, what I believe, and what I do, I'm bankrupt without love." *(1 Corinthians 13:1-4 The Message)*
 
 Everything God does in His universe is to LOVE you, bless you and direct you. God model's His purpose for your life by doing it FIRST HIMSELF!
 
-Everything the devil does in God's universe is to trap, catch, seduce and DESTROY you. Don't forget that!
+Everything the devil does in God's universe is to trap, catch, seduce and DESTROY you. Don't forget that! Follow God's PURPOSE today and move beyond the mere "PAIN-PLEASURE" motion.
 
-Follow God's PURPOSE today, friend, and move beyond the mere "PAIN-PLEASURE" motion.
+CHOOSE to use PAIN to fulfill God's PURPOSE. Pain becomes valuable when used to enhance God's PURPOSE in your life. *(Romans 8:28)*
 
-CHOOSE to use PAIN to fulfill God's PURPOSE. Pain becomes valuable when used to enhance God's PURPOSE in your life. (Romans 8:28)
+CHOOSE to use PLEASURE to fulfill God's PURPOSE. Pleasure becomes valuable when used to enhance God's PURPOSE. *(1 Timothy 6:17)*
 
-CHOOSE to use PLEASURE to fulfill God's PURPOSE. Pleasure becomes valuable when used to enhance God's PURPOSE. (1 Timothy 6:17)
+**"Seek FIRST God's kingdom, and his righteousness, and ALL THE OTHER THINGS WILL BE GIVEN TO YOU AS WELL."** *(Matthew 6:33)*
 
-**" Friend, seek FIRST God's kingdom, and his righteousness, and ALL THE OTHER THINGS WILL BE GIVEN TO YOU AS WELL."** (Matthew 6:33)
-
-God wants to transform your heart and shape you for eternity. God has a purpose for you right now. God wants to reach people for His Kingdom through you, right now!
-
-Are you ready to surrender to God, today?
-
-Are you ready to put Him first in your life, above everything else?
+God wants to transform your heart and shape you for eternity. God has a purpose for you right now. God wants to reach people for His Kingdom through you, right now! Are you ready to surrender to God, today? Are you ready to put Him first in your life, above everything else?
