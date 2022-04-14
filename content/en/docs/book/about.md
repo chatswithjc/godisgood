@@ -49,7 +49,11 @@ My prayer is that you will choose this moment to follow Him no matter what! Do n
 
 Have questions? If you need anything, anything at all, a Bible, prayer, even if you need a couple bucks to get a ride on the bus or a loaf of bread, we’re here for you.
 
-Phone or Text: (623) 323-8645, Email: hello@chatswithjesus.io. Phoenix, Arizona.
+<br/><br/><br/>
+
+* Phone or Text: (623) 323-8645, Email: [hello@chatswithjesus.io](mailto:hello@chatswithjesus.io). Phoenix, Arizona.
+* [TikTok](https://www.tiktok.com/@chatswithjesus) 
+* [Rumble](https://rumble.com/user/chatswithjesus)
 
 &ndash; Stuart (Editor, Webmaster)
 
