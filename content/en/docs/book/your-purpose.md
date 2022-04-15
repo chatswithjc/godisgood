@@ -191,16 +191,15 @@ At the end of the day you should be able to ask yourself, "Was I a lover today?"
 
 **LOVE** is all that matters in God's agenda!
 
-"If I speak with human eloquence and angelic ecstasy but don't love, I'm nothing but the creaking of a rusty gate. If I speak God's Word with power, revealing all his mysteries and making everything plain as day, and if I have faith that says to a mountain, "Jump," and it jumps, but I don't love, I'm nothing. **If I give everything I own to the poor and even go to the stake to be burned as a martyr, but I don't love, I've gotten nowhere.** So, no matter what I say, what I believe, and what I do, I'm bankrupt without love." *(1 Corinthians 13:1-4 The Message)*
+"If I speak with human eloquence and angelic ecstasy but don't love, I'm nothing but the creaking of a rusty gate. If I speak God's Word with power, revealing all his mysteries and making everything plain as day, and if I have faith that says to a mountain, "Jump," and it jumps, but I don't love, I'm nothing. **If I give everything I own to the poor and even go to the stake to be burned as a martyr, but I don't love, I've gotten nowhere.** So, no matter what I say, what I believe, and what I do, I'm bankrupt without love." *(1 Corinthians 13:1-4)*
 
 Everything God does in His universe is to LOVE you, bless you and direct you. God model's His purpose for your life by doing it FIRST HIMSELF!
 
 Everything the devil does in God's universe is to trap, catch, seduce and DESTROY you. Don't forget that! Follow God's PURPOSE today and move beyond the mere "PAIN-PLEASURE" motion.
 
-CHOOSE to use PAIN to fulfill God's PURPOSE. Pain becomes valuable when used to enhance God's PURPOSE in your life. *(Romans 8:28)*
+* CHOOSE to use PAIN to fulfill God's PURPOSE. Pain becomes valuable when used to enhance God's PURPOSE in your life. *(Romans 8:28)*
+* CHOOSE to use PLEASURE to fulfill God's PURPOSE. Pleasure becomes valuable when used to enhance God's PURPOSE. *(1 Timothy 6:17)*
 
-CHOOSE to use PLEASURE to fulfill God's PURPOSE. Pleasure becomes valuable when used to enhance God's PURPOSE. *(1 Timothy 6:17)*
+----
 
-**"Seek FIRST God's kingdom, and his righteousness, and ALL THE OTHER THINGS WILL BE GIVEN TO YOU AS WELL."** *(Matthew 6:33)*
-
-God wants to transform your heart and shape you for eternity. God has a purpose for you right now. God wants to reach people for His Kingdom through you, right now! Are you ready to surrender to God, today? Are you ready to put Him first in your life, above everything else?
+**"Seek FIRST God's kingdom, and his righteousness, and ALL THE OTHER THINGS WILL BE GIVEN TO YOU AS WELL."** *(Matthew 6:33)* God wants to transform your heart and shape you for eternity. God has a purpose for you right now. God wants to reach people for His Kingdom through you, right now! Are you ready to surrender to God, today? Are you ready to put Him first in your life, above everything else?

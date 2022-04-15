@@ -78,14 +78,12 @@ Repentance (from the Greek "metanoia") means **CHANGE** as an afterthought. In p
 
 Such "breakdown" preceding change can be caused by human means as I mentioned above, **OR** by God's **KINDNESS.**
 
-Think of it...
-
 God is deeply invested in the **CHANGE** of people by means of **LOVING, showing mercy, grace and KINDNESS.** Hell and suffering are not God's creation. They are the result of sin and the rejection of God's love and kindness. You don't need to pay for the penalty of your sin/s any longer. God did it for you in the person of Jesus Christ. God does not condemn you, **HE LOVES YOU!** (John 3: 16-18) So you either accept His love or reject it. It is as simple as that, friend! I have said it many times: "If **LOVE** does not change the heart of a person, all other sources may change the behavior but not the HEART! I have watched people who every one though they had change for 30 years, to watch them destroy themselves in one moment, because **their heart was never been touched by deep and abiding love.** They simply contained their behavior for 30 years because of fear, religion, or self-discipline. In one moment of weakness it was all gone! I also know people who have grown in very unloving, and broken down situations, victims of child abuse, a world of drugs and crime... somehow, they caught a glimpse of the **LOVE OF GOD** and they actually surrendered to such love! These people do not reflect the symptoms of others that grew up under similar circumstances. Why is that?
 
 You see, human behavior is mostly predictable. A reward system creates predictable behavior. Fear creates predictable behavior. The only think that changes the human heart from the inside out, in spite of, and beyond, circumstances, reward and fear, is **LOVE.**
 
 I know how love and kindness makes me want to please another human being. Love melts my heart! Love makes me want to be better. Love makes me want to give my best! Love drives me to do what nothing else will do.
 
-At the end of the day, what drives you to do what you do,friend? What motivates you to change? Love or Fear? Love or the need to fit?
+----
 
-**LOVE** is God's strategy to get people like you and me to change! I pray that you may catch a glimpse of such incredible **LOVE** and choose to follow God in the purpose He has for your life on this earth!
+At the end of the day, what drives you to do what you do,friend? What motivates you to change? Love or Fear? Love or the need to fit? **LOVE** is God's strategy to get people like you and me to change! I pray that you may catch a glimpse of such incredible **LOVE** and choose to follow God in the purpose He has for your life on this earth!

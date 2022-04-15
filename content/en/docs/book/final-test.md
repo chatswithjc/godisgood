@@ -126,4 +126,6 @@ Here are some indicators of whether you are grateful to God for His love, and yo
 
 * **You will keep His 10 commandments.** Jesus said, "He who has My commandments and keeps them, it is he who loves Me . . ." *(John 14:21)*. If you love God, then you will do what He says. How can you obey God's commandments? By accepting God's power in your life! You will never be able to keep perfectly God's commandments! But in His power you will!
 
-**If you love God, the proof will be in your actions and motivations.**
+----
+
+If you love God, the proof will be in your actions and motivations.

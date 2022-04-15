@@ -152,4 +152,6 @@ When I read this chapter, I say, **"Wow!"** An amazing spiritual journey from "E
 
 Why Am I so passionate about what I say and do? Because I believe we are living in the last days!
 
+----
+
 Nothing will protect you from the confusion coming upon the masses on this planet, except the presence of God, His grace, His love, His power, **His wholeness inside emotionally, and outside in your relationships!** His permeating **ONENESS,** as the apostle Paul calls it.

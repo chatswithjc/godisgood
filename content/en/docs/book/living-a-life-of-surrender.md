@@ -102,10 +102,6 @@ Then you have the grand finale. Because when you die believing in God, it's but 
 
 Then we all go to heaven. We will have rewards waiting for us there. Then after thousand years, heaven will come to Earth, and we will forever and ever live eternally on this earth renewed. Revelation 20. We will have the rule and reign of Christ on the Earth in the new kingdom, and we will be a part of that. Earth will become the capital of the universe. No one in the entire universe will be closer to God than humans. Jesus, is one of us, and we will be like Him in body. We will be ruling and reigning with Jesus then. And that statement of Jesus in response to Peter's question will be fulfilled then. Oh, Peter... Yes... But then, what about you and me, Friend? Don't you feel like Peter at times?
 
-So whatever you have given up—or whatever you are giving up—will be more than made up to you, friend!
+----
 
-Throughout eternity, you will realize it was worth it to live for God on this earth! No sacrifice is too big! No effort to bring people to the Kingdom of God, will go unrewarded. God is watching you and me now.
-
-God surprises us with HIS EXTRAVAGANT LOVE when we are working up a deal with Him! His deal is so much better!! If His extravagant love does not melt your heart into surrendering your pride, your perfectionism, your habits, your arrogance, your independent attitude, NOTHING ELSE WILL MATTER!
-
-God has the best deal for you, friend! Only, when you SURRENDER to the extravagant love of God as a bond servant, you become truly free! That's the paradox of authentic Christianity, and the dark side of religion.
+So whatever you have given up—or whatever you are giving up—will be more than made up to you! Throughout eternity, you will realize it was worth it to live for God on this earth! No sacrifice is too big! No effort to bring people to the Kingdom of God, will go unrewarded. God is watching you and me now. God surprises us with HIS EXTRAVAGANT LOVE when we are working up a deal with Him! His deal is so much better!! If His extravagant love does not melt your heart into surrendering your pride, your perfectionism, your habits, your arrogance, your independent attitude, NOTHING ELSE WILL MATTER! God has the best deal for you, friend! Only, when you SURRENDER to the extravagant love of God as a bond servant, you become truly free! That's the paradox of authentic Christianity, and the dark side of religion.

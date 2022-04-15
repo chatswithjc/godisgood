@@ -16,7 +16,7 @@ toc: true
 
 ## Feeling Lost?
 
-**"Suppose one of you had a hundred sheep and lost one. Wouldn't you leave the ninety-nine in the wilderness and go after the lost one until you found it? When found, you can be sure you would put it across your shoulders, rejoicing, and when you got home call in your friends and neighbors, saying, 'Celebrate with me! I've found my lost sheep!' Count on it—THERE'S MORE JOY IN HEAVEN OVER ONE SINNER'S RESCUED LIFE THAN OVER NINETY-NINE GOOD PEOPLE IN NO NEED OF RESCUE."** Luke 15:7 - The Message
+**"Suppose one of you had a hundred sheep and lost one. Wouldn't you leave the ninety-nine in the wilderness and go after the lost one until you found it? When found, you can be sure you would put it across your shoulders, rejoicing, and when you got home call in your friends and neighbors, saying, 'Celebrate with me! I've found my lost sheep!' Count on it—THERE'S MORE JOY IN HEAVEN OVER ONE SINNER'S RESCUED LIFE THAN OVER NINETY-NINE GOOD PEOPLE IN NO NEED OF RESCUE."** *(Luke 15:7)*
 
 Now... Who are the **"good people in no need of rescue"?**
 
@@ -40,7 +40,7 @@ What matters most to God, Friend, is your relationship with Him. What matters mo
 
 Grace in the Bible is the undeserved gift of eternal life, (John 3: 16, 17-The Message) God grants to a human being who accepts his sinful condition, and accepts Jesus as His Redeemer.
 
-Ephesians 2:7-10 (The Message) is one of the most liberating messages of the Bible. It dismantles RELIGION totally! I call it the "RELIGION DEMOLITION" message directly from the heart of God. (\[My notes\]
+Ephesians 2:7-10 is one of the most liberating messages of the Bible. It dismantles RELIGION totally! I call it the "RELIGION DEMOLITION" message directly from the heart of God. (\[My notes\]
 
 "Now God has \[YOU\] where he wants \[YOU\],
 

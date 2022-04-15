@@ -44,6 +44,8 @@ Know that humility is also necessary to receive God’s love, to be lifted up by
 
 Humility causes us to begin to fit into God’s kingdom and into the purpose He has for our lives which is fellowship with Himself. In trusting humility, we can open the door of our hearts and receive God’s love through a real, personal, loving relationship (Revelation 3:20). Then, through the power of His love, we have the strength to overcome our old sinful nature and love Him back. **Because He loves us first, we are able to do our part and complete an exchange of love.**
 
+----
+
 "So here’s what I want you to do...: **Take your everyday, ordinary life—your sleeping, eating, going-to-work, and walking-around life—and place it before God as an offering."** (as act of worship)
 
 Live your ordinary life as a **Divine WOW** because you are keenly aware of God's presence in your collective consciousness and world around. In fact later on Paul makes a distinction between a dull, flat life lived according to the culture and the **"WOW"** experience God enables in your life from within. You simply respond to the amazing love and grace of God.

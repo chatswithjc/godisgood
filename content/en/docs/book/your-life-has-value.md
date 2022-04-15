@@ -50,6 +50,8 @@ Do you believe that when you surrender to God, He can use your past, your hurts,
 
 This is what I know. God is more than a rational, intellectual reality you can grab like a text book, to understand. He is a RELATIONAL God. You can only catch glimpses of Him in a personal relationship with Him. You catch glimpses of God when you read the Bible, when you pray, when He whispers in your mind. What your relationship with God can not satisfy, your mind will never comprehend! Are you with me, Friend? Followers of God in word, without a relationship with Him, are a contradiction in terms. That’s why I often say, it’s easier to become a religious Christian and repeat the lingo, than it is to walk with God, read the Bible, contemplate God, meditate, reflect, and pray for enlightenment! Without a relationship, you do not have depth to grasp the reality of God.
 
+----
+
 “For we are God’s [own] handiwork (His workmanship), recreated in Christ Jesus, [born anew] that we may do those good works which God predestined (planned beforehand) for us [taking paths which He prepared ahead of time], that we should walk in them [living the good life which He prearranged and made ready for us to live]." *(Ephesians 2:10)*
 
 If you are a follower of God, NOTHING IS A MERE ACCIDENT! God is bigger than your circumstances. It may not be fair. It may not be understandable. It may not make sense. But God will take whatever happens to you, and turn it around into a blessing! *(Romans 8:28)*

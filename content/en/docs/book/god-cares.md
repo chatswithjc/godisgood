@@ -22,8 +22,7 @@ John 3: 16, 17 are words said by Jesus echoing God's heartbeat for you and me!
 
 This passage contains the fundamental truth you need to understand and accept if anything else will make sense. God loves you, and He wants **YOU** to be in His family! That's it! Once you catch a glimpse of His love the rest follows! Once you understand how passionate God feels about you, that love will drive you to do what is best for yourself! You will want to obey Him... Spend time with Him... Tell others about Him... Nothing will be too much! Love is the most powerful driving force in the universe!
 
-It is not too big, nor is it too small and insignificant for God. He cares! Kind David wrote, **"Hear my cry, O God; attend to my prayer. From the end of the earth I will cry to You, when my heart is overwhelmed; lead me to the rock that is higher than I"** (Psalm 61:1–2).
-
+It is not too big, nor is it too small and insignificant for God. He cares! Kind David wrote, **"Hear my cry, O God; attend to my prayer. From the end of the earth I will cry to You, when my heart is overwhelmed; lead me to the rock that is higher than I"** *(Psalm 61:1–2)*.
 
 God is exactly what God meant to be to humans: "Immanuel." (God with us) A God in the here and now. A relational God!
 
@@ -109,11 +108,11 @@ Will you accept God in your life today? Will you follow Him? Will you invite som
 
 I am a seeker. I am committed to let God love me every day and seek God’s will in the reading of the Bible and the direction of the Holy Spirit.
 
-> "Turn not to the right hand nor to the left: remove thy foot from evil." (Proverbs 4:27, KJV)
+> "Turn not to the right hand nor to the left: remove thy foot from evil." *(Proverbs 4:27 KJV)*
 
-> "Jesus said to him, ‘I am the way, the truth, and the life. No one comes to the Father except through Me.’" (John 14:6)
+> "Jesus said to him, ‘I am the way, the truth, and the life. No one comes to the Father except through Me.’" *(John 14:6)*
 
-> "Enter by the narrow gate; for wide is the gate and broad is the way that leads to destruction, and there are many who go in by it. Because narrow is the gate and difficult is the way which leads to life, and there are few who find it.” (Matthew 7:13-14)
+> "Enter by the narrow gate; for wide is the gate and broad is the way that leads to destruction, and there are many who go in by it. Because narrow is the gate and difficult is the way which leads to life, and there are few who find it.” *(Matthew 7:13-14)*
 
 **THE LONELINESS OF A RELATIONSHIP WITH GOD IS A NARROW ROAD**
 
@@ -261,8 +260,6 @@ Once you have experienced the love of God, you will be emboldened like Job was.
 
 You can’t go back, you can’t just stay where you are. You burned the theological bridges and the lies who kept you imprisoned in fear and legalism.
 
-To the one who has tasted of God’s liberating grace backing down is an act of highest stupidity anyone is capable of. You are ruined for ever if you choose to reject such love. God does not stop loving you. You become miserable running away from God!
-
-Love’s longing is to give everything, surrender all, leave everything behind to cling to God, just as a lover embraces a lover in real life. “Counting the cost” (Luke 14:27-28 - NIV) makes sense in a capitalistic culture, but really… that religious approach to a relationship with God was “yesterday,” when you did not know better. “Calculating the cost” of a relationship with God is an absolutely absurd idea to the one consumed with yearning for the God who loves you beyond your wildest imagination!
+To the one who has tasted of God’s liberating grace backing down is an act of highest stupidity anyone is capable of. You are ruined for ever if you choose to reject such love. God does not stop loving you. You become miserable running away from God! Love’s longing is to give everything, surrender all, leave everything behind to cling to God, just as a lover embraces a lover in real life. “Counting the cost” *(Luke 14:27-28)* makes sense in a capitalistic culture, but really that religious approach to a relationship with God was “yesterday,” when you did not know better. “Calculating the cost” of a relationship with God is an absolutely absurd idea to the one consumed with yearning for the God who loves you beyond your wildest imagination!
 
 

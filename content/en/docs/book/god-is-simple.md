@@ -36,17 +36,17 @@ In Matthew 6 you will catch a glimpse of God's view that states that the "flow,"
 
 Matthew 6 introduces you into God's wholeness, God's simplicity and begs you to walk into it and let yourself be. Read it slowly and you will get the idea Jesus is trying to convey.
 
-“Be especially careful when you are trying to be good so that you don’t make a performance out of it. It might be good theater, but the God who made you won’t be applauding." Matthew 6 (The Message)
+“Be especially careful when you are trying to be good so that you don’t make a performance out of it. It might be good theater, but the God who made you won’t be applauding." *(Matthew 6)*
 
 “When you do something for someone else, don’t call attention to yourself. You’ve seen them in action, I’m sure—‘playactors’ I call them—treating prayer meeting and street corner alike as a stage, acting compassionate as long as someone is watching, playing to the crowds. They get applause, true, but that’s all they get. When you help someone out, don’t think about how it looks. Just do it—quietly and unobtrusively. THAT IS THE WAY YOUR GOD, WHO CONCEIVED YOU IN LOVE, WORKING BEHIND THE SCENES, HELPS YOU OUT."
 
-**"Summing it all up, I'd say you'll do best by filling your minds and meditating on things true, noble, reputable, authentic, compelling, GRACIOUS—the BEST, not the worst; the BEAUTIFUL, not the ugly; things to PRAISE, not things to curse. Put into practice what you learned from me, what you heard and saw and realized. Do that, and God, who makes everything work together, will work you into his most excellent harmonies."** What you just read is in the Bible. God is into the beauty of simplicity. Philippians 4:8 (The Message)
+**"Summing it all up, I'd say you'll do best by filling your minds and meditating on things true, noble, reputable, authentic, compelling, GRACIOUS—the BEST, not the worst; the BEAUTIFUL, not the ugly; things to PRAISE, not things to curse. Put into practice what you learned from me, what you heard and saw and realized. Do that, and God, who makes everything work together, will work you into his most excellent harmonies."** What you just read is in the Bible. God is into the beauty of simplicity. *(Philippians 4:8)*
 
 Simplicity in its true meaning, and out of the frame of the four misconceptions I listed above, can be a powerful voice for God. Children are simple. The most passionate love is simple. Authentic emotions are simple, as opposed to neurotic and twisted manifestations of denial.
 
 ## How to Be Happy
 
-Psalm 119:1-8 (The Message) contains **THE SECRET TO BE BLESSED BY GOD.**
+Psalm 119:1-8 contains **THE SECRET TO BE BLESSED BY GOD.**
 
 > You're blessed when you stay on course, walking steadily on the road revealed by God.
 You're blessed when you follow his directions, doing your best to find him.
@@ -68,7 +68,7 @@ God will not only share with you the best life to live ever on this earth, but w
 
 We are born to dream. We are born to fly high with ideas. We are born to be creative. I love watching kids play. We are made by God to dream big dreams, and think of the best life has to offer. The human imagination has no limit. God is not against you **LIVING YOUR BEST LIFE EVER.** All to the contrary, He wants to do the opposite of what the world does... The world and the culture bring you down, help you to get stuck in a rut, makes you materialistic and dependent on "things." We, human, tend to decide what is best for us, we obsess over those things, we abhor what we label as unpleasant, and then miss the magnificent opportunities God has for us!
 
-Romans 12:1-2-The Message \[My comments\]
+Romans 12:1-2 \[My comments\]
 
 **So here's what I want you to do, God helping you:**
 
@@ -109,5 +109,7 @@ Here is the reason... Unless you offer God everything you won't be able to embra
 "What do I do with my lack of money? Shortage of funds... "
 
 Offer it to God, present it to him as an offering, then you will be able to embrace your condition and learn incredible lessons to grow and see new possibilities.
+
+----
 
 Whatever you are facing, good and bad, offer it to God and then embrace it, Friend! I promise... You will see God opening your eyes and producing magnificent spiritual, emotional and mental growth, that will impact your body, relationships and your world around. No life coach, or pastor can ever come up with a more powerful, transforming principle as this one!

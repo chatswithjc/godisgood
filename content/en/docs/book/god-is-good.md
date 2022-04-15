@@ -80,12 +80,11 @@ eternally present to all who fear him,
 Making everything right for them and their children
 God has set his throne in heaven;
 he rules over us all. He's the King!
-- Psalm 103, Message
+- *(Psalm 103, Message)*
 
 Would you trust God today? He is watching everything. He knows everything. He won’t drop you.
 
-
-King David composed a song to declare the goodness of God. One of my favorites Psalms. Psalm 145:8-21 (The Message)
+King David composed a song to declare the goodness of God. One of my favorites Psalms. Psalm 145:8-21
 
 **"God is ALL mercy and grace—not quick to anger, is rich in love.**
 
@@ -117,7 +116,7 @@ The God King David described in this Psalm **IS MY GOD, Friend!** That's the God
 
 “God is good!” has become my mantra, when people question things, when people write about their most inner secrets. God is always good! I believe that religion misses the goodness of God, in attempting to make sure people get God’s holiness, justice and wrath. God’s holiness is rooted in His love. God’s justice is based on His love. God’s wrath is driven by a love that is beyond our comprehension. We don’t have a mind to understand the holy passion of God for humanity! The cross, the death of Jesus, what he endured only give us glimpses of a LOVE that beyond our rational grasp!
 
-**"Or do you show contempt for the riches of his kindness, forbearance and patience, NOT REALIZING THAT GOD'S KINDNESS IS INTENDED TO LEAD YOU TO REPENTANCE?"** Romans 2:4 (NIV)
+**"Or do you show contempt for the riches of his kindness, forbearance and patience, NOT REALIZING THAT GOD'S KINDNESS IS INTENDED TO LEAD YOU TO REPENTANCE?"** *(Romans 2:4 NIV)*
 
 Do you realize, Friend, that God's goodness, grace and compassion is intended to melt your heart? His goodness is intended to make you feel loved, cared for, so in turn you can love others? You are not just one more in the mass of people. You are God's special creation. There is no one else in the world like you! God is watching you day in and day out!
 
@@ -129,7 +128,7 @@ I believe God is good and He takes delight in doing good things for people. He d
 
 In the midst of whatever is going on in your life today, I invite you to pause and reflect on God. King David describes in powerful words, God’s character. We can verily grasp the depth of these words.
 
-King David composed a song to declare the goodness of God. One of my favorites Psalms. Psalm 145:8-21 (The Message)
+King David composed a song to declare the goodness of God. One of my favorites Psalms. Psalm 145:8-21
 
 “God is ALL mercy and grace—not quick to anger, is rich in love.
 
@@ -159,7 +158,7 @@ My mouth is filled with God’s praise. Let everything living bless him, bless h
 
 The God King David described in this Psalm IS MY GOD, Friend! That’s the God that melts my heart! That’s the God that drives me, and moves me to do what I do! He has been good to me beyond my wildest dreams! I don’t know any other God! 
 
-“Or do you show contempt for the riches of his kindness, forbearance and patience, NOT REALIZING THAT GOD’S KINDNESS IS INTENDED TO LEAD YOU TO REPENTANCE?" (Romans 2:4 (NIV))
+“Or do you show contempt for the riches of his kindness, forbearance and patience, NOT REALIZING THAT GOD’S KINDNESS IS INTENDED TO LEAD YOU TO REPENTANCE?" *(Romans 2:4 NIV)*
 
 Do you realize, Friend, that God’s goodness, grace and compassion is intended to melt your heart? His goodness is intended to make you feel loved, cared for, so in turn you can love others? You are not just one more in the mass of people. You are God’s special creation. There is no one else in the world like you! God is watching you day in and day out!
 
@@ -169,7 +168,7 @@ If God’s love and goodness doesn’t drive to love your spouse, your children,
 
 If you let God love you, you will experience an outpouring of His presence that will drive you to be generous, give, love, care for others, tell them about God's gift of grace.
 
-The Great Controversy between God and the devil has already been won! When Jesus died on the cross, on a Friday evening and said, "It is finished," He meant what He said: "It is done." The Sabbath, the seventh day of the week, became a symbol of the finished work of God in the Universe. REST for those who walk with God. Sunday, was the beginning of a new chapter. The resurrection of Jesus! He did no only rest from the work of SALVATION on behalf of humanity, but He sealed it with a new victory... **ETERNAL LIFE!**
+----
 
-God is the victor for ever! Satan has been defeated for ever! So, whose side are you on?
+The Great Controversy between God and the devil has already been won! When Jesus died on the cross, on a Friday evening and said, "It is finished," He meant what He said: "It is done." The Sabbath, the seventh day of the week, became a symbol of the finished work of God in the Universe. REST for those who walk with God. Sunday, was the beginning of a new chapter. The resurrection of Jesus! He did no only rest from the work of SALVATION on behalf of humanity, but He sealed it with a new victory... **ETERNAL LIFE!** God is the victor for ever! Satan has been defeated for ever! So, whose side are you on?
 

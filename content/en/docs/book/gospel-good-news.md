@@ -26,6 +26,8 @@ If we will be faithful to the spirit of the gospel, we should always allow the S
 
 “Then you will know the TRUTH and the TRUTH will set you free!” And the truth is not a dogma, it’s not a theological statement, it is not a set of beliefs! The question is not WHAT but WHO is the truth. In the Bible TRUTH is always relational and the end result is always freedom!; not religious and legalistic slavery and fear! Jesus said, “I am the TRUTH” *(John 14:6)* God is the TRUTH. The only way to know the truth is by RELATING to Him.
 
+----
+
 > The true Gospel of God, will always be **GOOD NEWS.** And the **GOOD NEWS** will always be about **freedom!**
 
 Do not accept any other Gospel! Be suspicious of a Gospel which feels like a heavy brick on your shoulders. Take a second look at a Gospel that drives you by fear! If the **TRUTH** does not free you, it is not the truth of God! Notice, I never said, there would be no difficulties in accepting the **Gospel of God's freedom.** We are conditioned by culture and religion to no believe it, or experience it!

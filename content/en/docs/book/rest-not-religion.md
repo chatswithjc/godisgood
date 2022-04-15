@@ -24,7 +24,7 @@ In reality, all faith is individual. No person believes exactly like another per
 
 The real church is about Jesus Christ, loosing yourself not finding self; and also practical love for others. It’s simple - live in God’s love and share it with others. You can find God’s love in the secret place (the prayer closet).
 
-Ephesians 2:7-10 (The Message) is one of the most liberating messages of the Bible. It dismantles RELIGION totally! I call it the “RELIGION DEMOLITION” message directly from the heart of God. “Now God has [YOU] where he wants [YOU], with all the time in this world and the next [God has all the time in the world. There is NO anxiety! God’s journey begins with REST! No hurry] to shower grace and kindness upon [YOU] in Christ Jesus." 
+Ephesians 2:7-10 is one of the most liberating messages of the Bible. It dismantles RELIGION totally! I call it the “RELIGION DEMOLITION” message directly from the heart of God. “Now God has [YOU] where he wants [YOU], with all the time in this world and the next [God has all the time in the world. There is NO anxiety! God’s journey begins with REST! No hurry] to shower grace and kindness upon [YOU] in Christ Jesus." 
 
 All we do is trust him enough to LET HIM DO IT.
 
@@ -34,7 +34,7 @@ No, we neither make nor save ourselves. God does both the making and saving. He 
 
 Jesus is not a casual friend. He is not a once a week date kind of deal. He invites you to walk with Him, He doesn’t ask you where you are going so He can join you for a walk… He doesn’t tell you, “When you come back from work join me for a walk.” His invitation takes priority over everything you do. Think about it… Wouldn’t life be easier if we would get up every morning to walk with Jesus? Instead of going to work, you walk with Jesus. Instead of going grocery shopping, you walk with Jesus. Now follow me on this thought because here is the most fun part of walking with Jesus. He does not only invite you to walk with Him, but He leads the way into all those places where you think “you have to go.” Did you know that?
 
-In another of His strategies for life He simply says, “Follow Me.” (Matthew 8:22) This is radical! 23 times Jesus said “Follow me.”
+In another of His strategies for life He simply says, “Follow Me.” *(Matthew 8:22)* This is radical! 23 times Jesus said “Follow me.”
 
 Have you ever considered the implications of following Jesus? When you are on the freeway and a car behind you bumps you, Jesus says, “Follow me!” What does that mean? It means Jesus was there before the incident happened! If you are truly following Jesus, every situation you walk into, every room you go to, every person you meet, Jesus is already there! Why would He otherwise say, “Follow me!” When you face an angry spouse, Jesus says, “Follow me.” That means He is already there dealing with the situation. When a loved ones dies, Jesus says, “Follow me”… In other words, it is safe for you to walk into this painful moment because I am here already… When you face a tough moment with your teenager, Jesus says, “Follow me.” In other words… I am here already! Walk with me is not just a casual spiritual experience with Jesus. It means CONFIDENCE because He is already walking ahead of us!]
 
@@ -80,15 +80,16 @@ oh, how refreshing it is!
 I've made Lord God my home.
 God, I'm telling the world what you do!
 ```
-&ndash; Psalm 73:25-28-The Message
+&ndash; *(Psalm 73:25-28 Message)*
 
 When you are close to God, you get to know what **LIFE** is! God is your protection, your source of renewal, and energy.
 
 Some people think being close to God is just for **RELIGIOUS PEOPLE.** Nothing could be farther from the truth! In fact, the opposite is the truth! God longs to befriend simple people! Regardless of your career, your social position in life, the baggage you carry from your past, you can get close to God. Getting close to God does not depend on some special gifting from God; getting close to God depends on your choice. God longs to be close to you! This is how easy it is to get close to God...
 
-> James 4:8, The Message, says, **"Say a quiet yes to God and he'll be there in no time."** Did you catch that? This verse is both a command and a promise.
+> James 4:8 says, **"Say a quiet yes to God and he'll be there in no time."** Did you catch that? This verse is both a command and a promise.
 
+----
 
 God is your fortress in difficult times. **God will never let you down.** Spend time with Him. Surrender every challenge you face to Him. One, by one... In the morning... Ask God to guide you **TODAY...** Just today... God is your best insurance policy in the world! As we wait for the Second Coming of Jesus, and our worlds spirals down, there is HOPE! God is YOUR hope!
 
-Would you consider getting close to God today, Friend? There is no shame with God! There is no guilt with Him! He never accuses! He only **LOVES.** God infuses the pain and the suffering of this life with a sense of meaning! He turns scars into stars for His glory!
+Would you consider getting close to God today? There is no shame with God! There is no guilt with Him! He never accuses! He only **LOVES.** God infuses the pain and the suffering of this life with a sense of meaning! He turns scars into stars for His glory!

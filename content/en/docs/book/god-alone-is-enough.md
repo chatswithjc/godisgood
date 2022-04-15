@@ -24,7 +24,7 @@ Whatever your needs may be - financial, physical, emotional, spiritual - you don
 
 And this same God who takes care of me will supply all your needs from his glorious riches, which have been given to us in Christ Jesus. Philippians 4:19 (NLT)
 
-"..the ones who seek the Lord will not lack any good thing." (Psalm 24:10, MEV)
+"..the ones who seek the Lord will not lack any good thing." *(Psalm 24:10, MEV)*
 
 We are all facing increasing complexity in this world of ours. Yet, the message of Jesus, reminds us that a simple life, lived in the presence of God is the only thing that really matters.
 
@@ -50,8 +50,8 @@ Don’t worry about missing out. You’ll find all your everyday human concerns 
 
 The most **EMPOWERING** presence for every **POSITIVE CHOICE** you make is God! Read these promises. Every time you make a **POSITIVE CHOICE** God is next to you, ready to assist you!
 
-**For God has not given us a spirit of fear and timidity, but of power, love, and self-discipline.** (2 Timothy 1:7, NLT)
+**For God has not given us a spirit of fear and timidity, but of power, love, and self-discipline.** *(2 Timothy 1:7, NLT)*
 
-**I know what it is to be in need, and I know what it is to have plenty. I have learned the secret of being content in any and every situation…I can do all this through him who gives me strength.** (Philippians 4:12, 13- NIV).
+**I know what it is to be in need, and I know what it is to have plenty. I have learned the secret of being content in any and every situation…I can do all this through him who gives me strength.** *(Philippians 4:12-13 NIV)*.
 
-**God is our refuge and strength, an ever-present help in trouble.** (Psalm 46:1, NIV)
+**God is our refuge and strength, an ever-present help in trouble.** *(Psalm 46:1, NIV)*

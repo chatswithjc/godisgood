@@ -95,6 +95,4 @@ This is the shortest of the seven messages Jesus gave to these churches, and it 
 
 It is easy to belong to the masses of political, cultural and religious"flip-flop." It is costly to stand for the radical discipleship of Jesus.
 
-Here is the promise to those who stand firm in times when it seems like everyone is surrendering to popular pressure.
-
-**"Though they stumble, they will never fall, for the Lord holds them by the hand."** *Psalm 37:24*
+Here is the promise to those who stand firm in times when it seems like everyone is surrendering to popular pressure. **"Though they stumble, they will never fall, for the Lord holds them by the hand."** *Psalm 37:24*

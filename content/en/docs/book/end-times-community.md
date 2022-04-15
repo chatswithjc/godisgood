@@ -506,3 +506,7 @@ The only way to find freedom from the lies is to love the eternal Word of God an
 When the final judgment has been completed following the 1,000-year peaceful reign of Jesus, the Bible says that God will roll up Earth and the heavens like a scroll, and a "new heaven and earth" will appear, with the "New Jerusalem" coming down out of heaven from God. God's dwelling place will then be among His people on the new earth. His beautiful and eternal dwelling place is described in Revelation 21-22.
 
 Thus will begin a whole new chapter in this story God is writing. We have no idea what happens next, but we can be assured that we will spend eternity with our savior, ruling and reigning with Him as he continues to create and do new things!
+
+----
+
+[Now What? How can you be prepapred? Next Steps &rsaquo;&rsaquo;]({{< relref "next-steps" >}})

@@ -70,30 +70,24 @@ God says, bring it all to me. Make every thought obey your choice! Make them go 
 
 Jeremiah was an angry prophet of God in the Old Testament. He was so angry with God that he wrote an entire book of complaints against God. Imagine! The book is called "Lamentations." One of the principles Jeremiah shares with us in the midst of his anger and frustration is this:
 
-Lamentations 3: 25-33 (The Message)
-
-**"God proves to be good to the man who passionately WAITS, to the woman who diligently SEEKS. It's a good thing to quietly hope, quietly hope for help from God."**
+**"God proves to be good to the man who passionately WAITS, to the woman who diligently SEEKS. It's a good thing to quietly hope, quietly hope for help from God."** *(Lamentations 3: 25-33 The Message)*
 
 **"When life is heavy and hard to take, go off by yourself. ENTER THE SILENCE. BOW IN PRAYER. Don't ask questions: WAIT for hope to appear. Don't run from trouble. Take it full-face. The "worst" is never the worst."**
 
 **"Why? Because the Master \[God\] won't ever walk out and fail to return. If he works severely, he also works tenderly. His stockpiles of loyal love are immense. He takes no pleasure in making life hard,in throwing roadblocks in the way."**
 
-God will speak to you, if you stop to listen. He may give you another perspective on what is going on. (Romans 8:28) Part of the **SHIFT** we spoke about last night is the ability to hear God! Do you want to experience the unleashing of God's power in your life? **STOP AND LISTEN!** God is longing to share His purpose for your life!
+God will speak to you, if you stop to listen. He may give you another perspective on what is going on. *(Romans 8:28)* Part of the **SHIFT** we spoke about last night is the ability to hear God! Do you want to experience the unleashing of God's power in your life? **STOP AND LISTEN!** God is longing to share His purpose for your life!
 
 3. **Praise God in the midst of adversity. Cultivate the fine art of gratefulness. It must be cultivated and practiced to become second nature!** Some of my homeless brothers and sisters have taught me this art the best! One of the best weapons to destroy and overcome negativity is reverse psychology. Praise God when you don't feel like it! Find positive in the midst of adverse conditions. It just takes some creativity. Praise God even when physical reality defies your gratefulness. When you lose your job, when you are sick, when someone betrays you and stabs you in the back, praise God! Take it as an opportunity to pray for that person. In the midst of grieving a loved one, it is possible to rejoice in God, knowing that ultimately He will make things come around right, even when you cannot see it in the present.
 
 Praising God, expressing gratefulness to God in the midst of adversity places you at a much higher level of consciousness. You are allowing God to fill you with hope, love and prepare you to see what you wouldn't see in a state of negativity. **Gratefulness,** purposeful love, healthy food, and exercise are the four basics of a healthy brain!
 
-1 Thessalonians 5:16-18 (The Message)
-
-**"Be cheerful no matter what; pray all the time; THANK GOD NO MATTER WHAT HAPPENS. This is the way God wants you who belong to Christ Jesus to live."**
+**"Be cheerful no matter what; pray all the time; THANK GOD NO MATTER WHAT HAPPENS. This is the way God wants you who belong to Christ Jesus to live."** *(1 Thessalonians 5:16-18 The Message)*
 
 Do you want to experience the unleashing of God's power in your life? **SHIFT** your mind! **SHIFT** towards God!
 
 1. **Surrender**
-
 2. **Listen**
-
 3. **Praise**
 
 ## Dealing with Negativity
