@@ -54,7 +54,7 @@ Here are the 3 simple steps to shift from your natural tendency, from self, to G
 
 1.  **Surrender to God!** Yes, surrender! No "Life Coach," no motivational coach, no therapist will tell you this upfront. I do! Nothing else works, except temporarily! I believe God is the source of transformational power. Strategies are fine! Principles and steps are fine! But ultimately it all comes down to **POWER.** Take your struggle to God. **Visualize** the act of giving to God your pain, your suffering, your wounds, your conflict, your marriage, your relationship, your sense of emptiness.
 
-Jesus said in Matthew 11: 28-30 (The Message)
+Jesus said in Matthew 11: 28-30
 
 > **"Are you tired? Worn out? Burned out on religion? Come to me. Get away with me and you'll recover your life. I'll show you how to take a real rest. Walk with me and work with me—watch how I do it. Learn the unforced rhythms of grace. I won't lay anything heavy or ill-fitting on you. Keep company with me and you'll learn to live freely and lightly."**
 
@@ -70,7 +70,7 @@ God says, bring it all to me. Make every thought obey your choice! Make them go 
 
 Jeremiah was an angry prophet of God in the Old Testament. He was so angry with God that he wrote an entire book of complaints against God. Imagine! The book is called "Lamentations." One of the principles Jeremiah shares with us in the midst of his anger and frustration is this:
 
-**"God proves to be good to the man who passionately WAITS, to the woman who diligently SEEKS. It's a good thing to quietly hope, quietly hope for help from God."** *(Lamentations 3: 25-33 The Message)*
+**"God proves to be good to the man who passionately WAITS, to the woman who diligently SEEKS. It's a good thing to quietly hope, quietly hope for help from God."** *(Lamentations 3: 25-33)*
 
 **"When life is heavy and hard to take, go off by yourself. ENTER THE SILENCE. BOW IN PRAYER. Don't ask questions: WAIT for hope to appear. Don't run from trouble. Take it full-face. The "worst" is never the worst."**
 
@@ -82,7 +82,7 @@ God will speak to you, if you stop to listen. He may give you another perspectiv
 
 Praising God, expressing gratefulness to God in the midst of adversity places you at a much higher level of consciousness. You are allowing God to fill you with hope, love and prepare you to see what you wouldn't see in a state of negativity. **Gratefulness,** purposeful love, healthy food, and exercise are the four basics of a healthy brain!
 
-**"Be cheerful no matter what; pray all the time; THANK GOD NO MATTER WHAT HAPPENS. This is the way God wants you who belong to Christ Jesus to live."** *(1 Thessalonians 5:16-18 The Message)*
+**"Be cheerful no matter what; pray all the time; THANK GOD NO MATTER WHAT HAPPENS. This is the way God wants you who belong to Christ Jesus to live."** *(1 Thessalonians 5:16-18)*
 
 Do you want to experience the unleashing of God's power in your life? **SHIFT** your mind! **SHIFT** towards God!
 
@@ -141,9 +141,9 @@ REPLACE hate with love by an act of the will. REPLACE unloving actions with thou
 No matter what's coming your way, you can redirect the power of your life in a positive direction. Remember what you're in favor of, and put your life into it. As long as you keep looking at what you don't want, that's exactly what you will get! Apply this to marriage, divorce, parenting, work situations, family tensions.
 
 
->"Our Scriptures tell us that if you see your enemy hungry, go buy that person lunch, or if he's thirsty, get him a drink. Your generosity will surprise him with goodness. **Don't let evil get the best of you; get the best of evil by doing good."** Romans 12:21 (The Message)
- In the power of God, you can turn negativity into positive! Give it a try. You will get totally hooked on it. I promise!
+>"Our Scriptures tell us that if you see your enemy hungry, go buy that person lunch, or if he's thirsty, get him a drink. Your generosity will surprise him with goodness. **Don't let evil get the best of you; get the best of evil by doing good."** Romans 12:21
 
+In the power of God, you can turn negativity into positive! Give it a try. You will get totally hooked on it. I promise!
 
 Simple thoughts to replace negativity into positive energy:
 
@@ -175,8 +175,8 @@ So, here is the conditioned reflex that will become the best prescription agains
 
 It is that simple, yet it takes a well disciplined conditioned reflex to do it. In the midst of unmet needs and expectations, turn to God! In the midst of a dark storm, turn to God! When sad, depressed, unable to get hold of yourself, turn to God!
 
-Philippians 4:6 tells us:
+Philippians 4:6 tells us: **"Be anxious for NOTHING, but in EVERYTHING by prayer and supplication, with thanksgiving, let your requests be made known to God."**
 
-**"Be anxious for NOTHING, but in EVERYTHING by prayer and supplication, with thanksgiving, let your requests be made known to God."**
+----
 
 The best prescription for worry is prayer, understanding the promises of God, reading the Bible, praising Him, and placing everything in His hands. Let me share with you what I do every morning. I actually raise the palms of my hands to God while I pray. I place each one of my kids on those palms. One by one. I place marriages I am praying for. I place people I have not even met but request prayers for a particular issue. **It helps me to visualize, the act of surrendering.** That's why I kneel. God is not impressed by that! No one sees me. It is my mental state that matters. It is good for my mind. It is good in order to create a conditioned reflex that says... "When anxious, when in pain, STOP, PAUSE and SURRENDER..." When freaking out abut something... stop all the crazy traffic going on in your mind, and in your tummy... and be silent before God. He was there before you got there. He was watching everything. He is in the crisis with you, and He has already decided what the best outcome will be, if you don't fight back!

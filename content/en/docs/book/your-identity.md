@@ -34,11 +34,11 @@ Romans 8:38-39 says **"So, what do you think? With God on our side like this, ho
 
 What's the distinctive mark of followers of God? The total confidence that God is in control of everything in your life, now, in the past, forever, all the time, 24/7, even when you sleep! God decides how you will die! **The one who believes God is in control of life events, all of them, all the time, has infinitely the greatest advantage. He is WITHOUT limitation.** There are no accidents in God's universe, even if you feel like one!
 
-**"Before I shaped you in the womb, I knew all about you. Before you saw the light of day, I HAD HOLY PLANS FOR YOU: A prophet to the nations— that's what I had in mind for you."** Jeremiah 1:5 (The Message)
+**"Before I shaped you in the womb, I knew all about you. Before you saw the light of day, I HAD HOLY PLANS FOR YOU: A prophet to the nations— that's what I had in mind for you."** Jeremiah 1:5
 
 This is good news for followers of God! There are no illegitimate children in God's kingdom. There may be accidental parents, but never accidental babies. You were in God's mind and heart before you were ever born!
 
-King David wrote: **"Oh yes, you shaped me first inside, then out; you formed me in my mother's womb. I thank you, High God—you're breathtaking! Body and soul, I am marvelously made! I worship in adoration—what a creation! You know me inside and out, you know every bone in my body; You know exactly how I was made, bit by bit, how I was sculpted from nothing into something." Like an open book, you watched me grow from conception to birth; all the stages of my life were spread out before you, THE DAYS OF MY LIFE ALL PREPARED BEFORE I'D EVEN LIVED ONE DAY.** *(Psalm 139: 13-16 The Message)*
+King David wrote: **"Oh yes, you shaped me first inside, then out; you formed me in my mother's womb. I thank you, High God—you're breathtaking! Body and soul, I am marvelously made! I worship in adoration—what a creation! You know me inside and out, you know every bone in my body; You know exactly how I was made, bit by bit, how I was sculpted from nothing into something." Like an open book, you watched me grow from conception to birth; all the stages of my life were spread out before you, THE DAYS OF MY LIFE ALL PREPARED BEFORE I'D EVEN LIVED ONE DAY.** *(Psalm 139: 13-16)*
 
 In any challenge of life. **Yes, there is a reason for everything!** And the greatest message is this: **the the cause of your pain, suffering, and tough moments are not relevant to God, at all!.** Romans 8:28 gives us the key! God is powerful enough to take your mistakes, your failures, what people do to you, the dark circumstances you face in this world... He can take anything and change it for good.
 

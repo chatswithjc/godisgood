@@ -126,7 +126,7 @@ In response to Pastors who attempted to dissuade him with conservative theology,
 
 And here comes Job’s stunning answer…
 
-“BECAUSE (I know God so well) that EVEN IF HE KILLED ME, I’D KEEP ON HOPING. I’d defend my innocence (against your accusations based on lies about the character of God) to the very end. Just wait, this is going to work out for the best—my salvation!"(Job 13:15 - The Message)
+“BECAUSE (I know God so well) that EVEN IF HE KILLED ME, I’D KEEP ON HOPING. I’d defend my innocence (against your accusations based on lies about the character of God) to the very end. Just wait, this is going to work out for the best—my salvation!" (Job 13:15)
 
 Job’s experience gets to the core of what I am describing as spiritual loneliness in a journey with God while surrounded by people who don’t comprehend your path, unless they are or have been there.
 
@@ -198,7 +198,7 @@ To the one who has tasted of God’s liberating grace backing down is an act of 
 
 ## Power of Grace
 
-Grace in the Bible is the undeserved gift of eternal life, (John 3: 16, 17-The Message) God grants to a human being who accepts his sinful condition, and accepts Jesus as His Redeemer.
+Grace in the Bible is the undeserved gift of eternal life, (John 3: 16, 17) God grants to a human being who accepts his sinful condition, and accepts Jesus as His Redeemer.
 
 Ephesians 2:7-10 is one of the most liberating messages of the Bible. It dismantles RELIGION totally! I call it the "RELIGION DEMOLITION" message directly from the heart of God. (\[My notes\]
 
@@ -222,7 +222,7 @@ Religious people have made it to appear that the narrow gate is so because of de
 
 The narrow gate is so, because it requires you to leave all your human baggage at the door! Can you see the image? The door is narrow, you can not fit through it with your big luggage!
 
-Jesus reduced the BIG 10 to 2, and the 2 to 1: LOVE. (Matthew 22: 37, 38-The Message) You can not love God, yourself, or people, unless you accept the love of God, first! You can not keep the BIG 10 unless you learn to love from God Himself! (1 John 4: 19-The Message) The human attempt to obey God is human baggage at the door!
+Jesus reduced the BIG 10 to 2, and the 2 to 1: LOVE. (Matthew 22: 37, 38) You can not love God, yourself, or people, unless you accept the love of God, first! You can not keep the BIG 10 unless you learn to love from God Himself! (1 John 4: 19) The human attempt to obey God is human baggage at the door!
 
 By human baggage I imply all of your GOOD and BAD deeds. All your goodness, intentions, resolutions, and EFFORTS to be good! The narrow gate requires freedom from human baggage, that can only be found in God! Surrendering is the answer to the challenge of the “narrow gate,” not trying to obey God! When you surrender to God, He transforms your heart, your tendencies, and you find yourself obeying God, and responding to life like He would!
 
@@ -248,7 +248,7 @@ Have you been trying hard to be good? Are you exhausted? Tired of trying to do b
 
 Here is Jesus's invitation to you and me:
 
-**"Are you tired? Worn out? Burned out on religion? Come to me. Get away with me and you’ll recover your life. I’ll show you how to take a real rest. Walk with me and work with me—watch how I do it. Learn the unforced rhythms of grace. I won’t lay anything heavy or ill-fitting on you. Keep company with me and you’ll learn to live freely and lightly."** Matthew 11: 28-30 (The Message)
+**"Are you tired? Worn out? Burned out on religion? Come to me. Get away with me and you’ll recover your life. I’ll show you how to take a real rest. Walk with me and work with me—watch how I do it. Learn the unforced rhythms of grace. I won’t lay anything heavy or ill-fitting on you. Keep company with me and you’ll learn to live freely and lightly."** Matthew 11: 28-30
 
 What's your bottom line? Are you open to God? If not, why not?
 
@@ -276,4 +276,4 @@ Want **TRUTH?** Walk with God. Spend time reading your Bible. Spent time praying
 
 Spend time with Jesus, reaching people for the Kingdom, following God's passion, and you will **know TRUTH!**
 
-**“You have your heads in your Bibles constantly because you think you’ll find eternal life there. But you miss the forest for the trees. These Scriptures are all about me! And here I am, standing right before you, and you aren't willing to receive from me the life you say you want."** John 5: 39-40 (The Message)
+**“You have your heads in your Bibles constantly because you think you’ll find eternal life there. But you miss the forest for the trees. These Scriptures are all about me! And here I am, standing right before you, and you aren't willing to receive from me the life you say you want."** John 5: 39-40

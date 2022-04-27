@@ -28,7 +28,7 @@ And this same God who takes care of me will supply all your needs from his glori
 
 We are all facing increasing complexity in this world of ours. Yet, the message of Jesus, reminds us that a simple life, lived in the presence of God is the only thing that really matters.
 
-“Don’t hoard TREASURE down here where it gets eaten by moths and corroded by rust or—worse!—stolen by burglars. Stockpile treasure in heaven, where it’s safe from moth and rust and burglars. It’s obvious, isn’t it? The place where your treasure is, is the place you will most want to be, and end up being. Matthew 6:19-34 (The Message)
+“Don’t hoard TREASURE down here where it gets eaten by moths and corroded by rust or—worse!—stolen by burglars. Stockpile treasure in heaven, where it’s safe from moth and rust and burglars. It’s obvious, isn’t it? The place where your treasure is, is the place you will most want to be, and end up being. Matthew 6:19-34
 
 “Your eyes are windows into your body. If you open your eyes wide in wonder and belief, your body fills up with light. If you live squinty-eyed in greed and distrust, your body is a dank cellar. If you pull the blinds on your windows, what a dark life you will have! [Jesus is referring here to what gets your attention! What you focus on! YOUR MIND IS THE EYE, THE WINDOW, OF YOUR HEART-The center of your passion and emotions!]
 

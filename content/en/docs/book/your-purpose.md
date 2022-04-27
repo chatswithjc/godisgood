@@ -211,7 +211,7 @@ So, what is God's PURPOSE for your life?
 * To learn HOW to love people.
 * To learn HOW to love self.
 
-"Jesus said, "'**LOVE** the Lord your God with all your passion and prayer and intelligence.' This is the most important, the first on any list. \[Obediebce to God's first 4 commandments is about **LOVING** GOD\] *(Matthew 22: 37-40 The Message)*
+"Jesus said, "'**LOVE** the Lord your God with all your passion and prayer and intelligence.' This is the most important, the first on any list. \[Obediebce to God's first 4 commandments is about **LOVING** GOD\] *(Matthew 22: 37-40)*
 
 But there is a second to set alongside it: '**LOVE** others as well as you **LOVE** yourself.' \[Obedience to God in the second set of 6 commandments is about **LOVING** PEOPLE AND SELF\]
 

@@ -50,7 +50,7 @@ For the person who has made a mess of his or her life—a pile of ashes, God say
 
 Only God can do that; only He can take a tangled mess of a life, turn it around, and transform it in such a way that you would not even know that individual used to be a whole different person. God is not into the recycling business, he is into the total transformation of broken lives.
 
-Paul wrote in 2 Corinthians 5:17-20 (The Message) the following: **"Now we look inside, and what we see is that anyone united with \[Christ\] gets a FRESH START, is CREATED NEW. The OLD LIFE IS GONE; A NEW LIFE BURGEONS! Look at it! All this comes from the God who settled the relationship between us and him, and then called us to settle our relationships with each other. God put the world square with himself through \[Christ\], giving the world a fresh start by offering forgiveness of sins. GOD HAS GIVEN IS THE TASK OF TELLING EVERYONE WHAT HE IS DOING. We're Christ's representatives. God uses us to persuade men and women to drop their differences and enter into God's work of making things right between them. We're speaking for Christ himself now: BECOME FRIENDS WITH GOD; HE'S ALREADY A FRIEND WITH YOU."**
+Paul wrote in 2 Corinthians 5:17-20 the following: **"Now we look inside, and what we see is that anyone united with \[Christ\] gets a FRESH START, is CREATED NEW. The OLD LIFE IS GONE; A NEW LIFE BURGEONS! Look at it! All this comes from the God who settled the relationship between us and him, and then called us to settle our relationships with each other. God put the world square with himself through \[Christ\], giving the world a fresh start by offering forgiveness of sins. GOD HAS GIVEN IS THE TASK OF TELLING EVERYONE WHAT HE IS DOING. We're Christ's representatives. God uses us to persuade men and women to drop their differences and enter into God's work of making things right between them. We're speaking for Christ himself now: BECOME FRIENDS WITH GOD; HE'S ALREADY A FRIEND WITH YOU."**
 
 What a magnificent description of God's passion for you and me, Friend! God is your friend! God is longing to bless you, give you peace and rest!
 
@@ -58,7 +58,7 @@ If you come to Christ today and say, "Jesus, here I am. Forgive me of my sin, cl
 
 ## Jesus Wants You to be Free
 
-Until you believe that God does everything RIGHT you won’t find peace in your heart! Every single event of your life, good or bad, is being managed by God if you are His follower. (Romans 8:28-The Message)
+Until you believe that God does everything RIGHT you won’t find peace in your heart! Every single event of your life, good or bad, is being managed by God if you are His follower. (Romans 8:28)
 
 When you surrender to God, He takes your past, your entire life, and transforms it into something gorgeous. GOD ALWAYS DOES EVERYTHING RIGHT.
 

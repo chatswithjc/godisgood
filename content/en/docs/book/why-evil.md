@@ -90,11 +90,11 @@ Paul says: **"LEGALISM** \[What is legalism? Legalism is making yourself obey la
 
 > **Surrender to the Spirit of God... Ask God to take over in your life... Walk with God... Talk to God... Hear His voice... Learn to HAVE A RELATIONSHIP WITH HIM! He will motivate you, animate you... He will create a power in your brain and emotions that no one, nothing, can ever do!**
 
-**"This is the word of the LORD...: ‘Not by might nor by power, but by my Spirit,’ says the LORD Almighty."** Zechariah 4: 6 (The Message)
+**"This is the word of the LORD...: ‘Not by might nor by power, but by my Spirit,’ says the LORD Almighty."** Zechariah 4:6
 
 Whatever you can take credit for, is not from God! What do you need God for? It is human pride! **Pride is _faith_ in yourself!** The opposite of pride is faith in God: an **unexpected miracle of God.**
 
-**"In his pride the wicked man does not seek him; in all his thoughts there is no room for God."** *(Psalm 10:4 NIV)* **“God opposes the proud but shows favor to the humble."** *(James 4:6 NIV)* **"First pride, then the crash—the bigger the ego, the harder the fall."** *(Proverbs 16:18 The Message)*
+**"In his pride the wicked man does not seek him; in all his thoughts there is no room for God."** *(Psalm 10:4 NIV)* **“God opposes the proud but shows favor to the humble."** *(James 4:6 NIV)* **"First pride, then the crash—the bigger the ego, the harder the fall."** *(Proverbs 16:18)*
 
 **Pride is the root of all sin.** Pride is the most serious, and the most subtle, sin. It often is not even recognized as existing.  **It causes us to turn away from God instead of turning to Him.**
 

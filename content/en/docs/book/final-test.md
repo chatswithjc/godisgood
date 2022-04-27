@@ -14,7 +14,7 @@ weight: 300
 toc: true
 ---
 
-These are the words of Jesus Himself. He told this parable about Himself in Matthew 25:31-46 (The Message)
+These are the words of Jesus Himself. He told this parable about Himself in Matthew 25:31-46
 
 “When he finally arrives, blazing in beauty and all his angels with him, the Son of Man will take his place on his glorious throne. **Then all the nations will be arranged before him and he will SORT the people out, much as a shepherd sorts out sheep and goats, putting sheep to his right and goats to his left.** “Then the King will say to those on his right, **‘Enter, you who are blessed by my Father! Take what’s coming to you in this kingdom. It’s been ready for you since the world’s foundation.** 
 

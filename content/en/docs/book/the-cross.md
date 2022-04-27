@@ -121,15 +121,15 @@ It is not wrong to cry. It is human. I feel sorry for people who can not cry. Go
 
 **"Pain insists upon being attended to. God whispers to us in our pleasures, speaks in our consciences, but shouts in our pains. It is his megaphone to rouse a deaf world."** - C.S. Lewis
 
-**"We don't yet see things clearly. We're squinting in a fog, peering through a mist. But it won't be long before the weather clears and the sun shines bright! We'll see it all then, see it all as clearly as God sees us, knowing him directly just as he knows us!"** *(1 Corinthians 13:12 The Message)*
+**"We don't yet see things clearly. We're squinting in a fog, peering through a mist. But it won't be long before the weather clears and the sun shines bright! We'll see it all then, see it all as clearly as God sees us, knowing him directly just as he knows us!"** *(1 Corinthians 13:12)*
 
 It is true that God takes a life that is empty, or full of irrelevant stuff, aimless, and headed toward hell, turns it around and **transforms it by His magnificent power and presence.** He forgives totally, 100% your sin condition. Once and forever you become free from the penalty of sin. Moreover, He credits the very righteousness of Jesus Christ into our "spiritual bank account."
 
 Then He begins the work of transformation. He begins to remove guilt and shame, fear and darkness, addictions and toxic behavior, and fills the void with love, kindness, compassion and a sense of His presence.
 
-**"Meanwhile, the moment we get tired in the waiting, God's Spirit is right alongside helping us along. IF WE DON'T KNOW HOW OR WHAT TO PRAY, IT DOESN'T MATTER. HE DOES OUR PRAYING IN AND FOR US, MAKING PRAYER OUR OF OUR WORDLESS SIGHS, our aching groans. He knows us far better than we know ourselves, knows our pregnant condition, and keeps us present before God. That's why we can be so sure that EVERY DETAIL in our lives of love for God is worked into something good."** *(Romans 8:26-28 The Message)*
+**"Meanwhile, the moment we get tired in the waiting, God's Spirit is right alongside helping us along. IF WE DON'T KNOW HOW OR WHAT TO PRAY, IT DOESN'T MATTER. HE DOES OUR PRAYING IN AND FOR US, MAKING PRAYER OUR OF OUR WORDLESS SIGHS, our aching groans. He knows us far better than we know ourselves, knows our pregnant condition, and keeps us present before God. That's why we can be so sure that EVERY DETAIL in our lives of love for God is worked into something good."** *(Romans 8:26-28)*
 
-**"God remembered us when we were down, His love never quits. Rescued us from the trampling boot, His love never quits. Takes care of everyone in time of need. His love never quits. Thank God, who did it all! His love never quits!"** *(Psalm 136: 23-26 The Message)*
+**"God remembered us when we were down, His love never quits. Rescued us from the trampling boot, His love never quits. Takes care of everyone in time of need. His love never quits. Thank God, who did it all! His love never quits!"** *(Psalm 136: 23-26)*
 
 The very heart of the Gospel, the Messianic Good News, is contained in Isaiah 61 (NIV). 750 years plus BC, the prophet Isaiah predicted the words Jesus would use describing His mission. Luke 4:18-19. This is the reason why Jesus came to this world. To display the love of God before humanity and the universe. God promised to turn bad into good for His people!
 
@@ -143,7 +143,7 @@ This is the very point of differentiation between **RELIGION** and a **RELATIONS
 
 Do you trust God? Do you believe God loves you? Then you know deep down in your heart, that God will bring all good things to happen to those who love Him. God wills into a relationship with us, He sees, he suffers, He walks with us. Because He knows, He will turn all things according to His original purpose.
 
-**"Don't run from suffering; embrace it. Follow me and I'll show you how. Self-help is no help at all. Self-sacrifice is the way, my way, to saving yourself, your true self. What good would it do to get everything you want and lose you, the real you? What could you ever trade your soul for?"** *(Mark 8: 34-37-The Message)*
+**"Don't run from suffering; embrace it. Follow me and I'll show you how. Self-help is no help at all. Self-sacrifice is the way, my way, to saving yourself, your true self. What good would it do to get everything you want and lose you, the real you? What could you ever trade your soul for?"** *(Mark 8: 34-37)*
 
 Share with people today, the Good News of a loving God, as if their eternal lives would depend on you. Live and love today, as if this would be your last day on earth! Nothing matters most!
 

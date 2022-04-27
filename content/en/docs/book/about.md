@@ -16,7 +16,7 @@ toc: true
 
 ## Why I Wrote God is Good
 
-The "God is Good" Book was a dream conceived around 2010 by Harold J. Duarte-Bernhardt who was a Senior Pastor of "Life Center" in Hollywood, CA.  “Life Center” is not a denomination, it’s not a religion, it’s simply a movement rooted in John 10:10. “I have come," said Jesus, “that you may have LIFE and have it more abundantly!" Extravagant LIFE, in the frame of a magnificent God who wants to bless His followers. Extravagant in GRACE, mercy, forgiveness, LOVE, and POWER to transform, and intervene in your life at critical moments. (Isaiah 44, The Message, is the promise from God)
+The "God is Good" Book was a dream conceived around 2010 by Harold J. Duarte-Bernhardt who was a Senior Pastor of "Life Center" in Hollywood, CA.  “Life Center” is not a denomination, it’s not a religion, it’s simply a movement rooted in John 10:10. “I have come," said Jesus, “that you may have LIFE and have it more abundantly!" Extravagant LIFE, in the frame of a magnificent God who wants to bless His followers. Extravagant in GRACE, mercy, forgiveness, LOVE, and POWER to transform, and intervene in your life at critical moments. (Isaiah 44, is the promise from God)
 
 We believe our mission is introduce people to the GOOD NEWS of God’s Kingdom and encourage them to LET GOD LOVE THEM. We don’t get involved in religious debates. We believe there are enough churches to fulfill that role.
 
@@ -35,7 +35,7 @@ This eBook is for everyone because God invites everyone to the Kingdom. Jesus Ch
 
 **Let God Love You! Live Loved. The Best is Yet to Come. Never Give Up.**
 
-> “This is how much God loved the world: He gave his Son, his one and only Son. And this is why: so that no one need be destroyed; by believing in him, anyone can have a whole and lasting life. God didn’t go to all the trouble of sending his Son merely to point an accusing finger, telling the world how bad it was. He came to help, to put the world right again. Anyone who trusts in him is acquitted; anyone who refuses to trust him has long since been under the death sentence without knowing it. And why? Because of that person’s failure to believe in the one-of-a-kind Son of God when introduced to him. (John 3:16-18, The Message)
+> “This is how much God loved the world: He gave his Son, his one and only Son. And this is why: so that no one need be destroyed; by believing in him, anyone can have a whole and lasting life. God didn’t go to all the trouble of sending his Son merely to point an accusing finger, telling the world how bad it was. He came to help, to put the world right again. Anyone who trusts in him is acquitted; anyone who refuses to trust him has long since been under the death sentence without knowing it. And why? Because of that person’s failure to believe in the one-of-a-kind Son of God when introduced to him. (John 3:16-18)
 
 ## Please Share This Message
 

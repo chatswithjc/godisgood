@@ -27,7 +27,7 @@ toc: true
 </div>
 
 
-Psalm 8 (The Message). There was no Hubble telescope when King David wrote this hymn. It make the Bible even greater! Almost 4.000 years ago, David was describing what we see today! Amazing, the greatness of God, Almighty!
+Psalm 8. There was no Hubble telescope when King David wrote this hymn. It make the Bible even greater! Almost 4.000 years ago, David was describing what we see today! Amazing, the greatness of God, Almighty!
 
 **"God, brilliant Lord, yours is a household name. Nursing infants gurgle choruses about you; toddlers shout the songs that drown out enemy talk, and silence atheist babble."**
 

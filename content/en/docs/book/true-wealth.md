@@ -16,7 +16,7 @@ toc: true
 
 We live in uncertain financial times. Finances tend to create anxiety and stress. The one who has, wants to make sure, that what he has will last or increase. If you listen carefully to what is NOT being said in the world of politics, at the end of the day, it is all about economics. If you have money, in most cases you have POWER, and power moves the human world in which we live. Money buys positions, fame, reputation, compromise, excuses and even cheap love.
 
-1 Timothy 6: 6-10 in The Message describes it the best. "**A devout life does bring wealth, but it's the RICH SIMPLICITY of being yourself before God.** Since we entered the world penniless and will leave it penniless, if we have bread on the table and shoes on our feet, that's enough.
+1 Timothy 6: 6-10 describes it the best. "**A devout life does bring wealth, but it's the RICH SIMPLICITY of being yourself before God.** Since we entered the world penniless and will leave it penniless, if we have bread on the table and shoes on our feet, that's enough.
 
 But if it's only money these leaders are after, they'll self-destruct in no time. **Lust for money brings trouble and nothing but trouble.** Going down that path, some lose their footing in the faith completely and live to regret it bitterly ever after."
 
@@ -34,7 +34,7 @@ Ask God to show you today, how to live a simple life, enjoying what you have whi
 
 ### Contentment
 
-**"I’ve LEARNED by now to be quite CONTENT whatever my circumstances. I’m just as happy with little as with much, with much as with little. I’ve found the recipe for being happy whether full or hungry, hands full or hands empty. Whatever I have, wherever I am, I can make it through anything in the One who makes me who I am."** Philippians 4: 11 (The Message)
+**"I’ve LEARNED by now to be quite CONTENT whatever my circumstances. I’m just as happy with little as with much, with much as with little. I’ve found the recipe for being happy whether full or hungry, hands full or hands empty. Whatever I have, wherever I am, I can make it through anything in the One who makes me who I am."** Philippians 4:11
 
 For Paul to write that he was content in every situation is truly amazing. At the time of this writing, **he was in jail** in Rome. Charged with sedition, treason, and other serious crimes, he had appealed to the highest court: Caesar himself. Without other legal recourse and friends in high places, he had to wait for his case to be heard. It seems as if Paul had the right to be an impatient and unhappy person. Instead, he wrote to the Philippians to say that he had **LEARNED** to be content.
 
