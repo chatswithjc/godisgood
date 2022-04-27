@@ -1,7 +1,7 @@
 ---
 title: "Your Identity"
-description: "Followers of God have a deeply rooted belief that God is in control of everything in our lives"
-lead: ""
+description: ""
+lead: "Followers of God have a deeply rooted belief that God is in control of everything in our lives. The only identity that really matters is the one we gained in a relationship with God."
 date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
@@ -14,7 +14,9 @@ weight: 101
 toc: true
 ---
 
-**THE ONLY IDENTITY THAT MATTERS IS THE ONE WE GAINED IN A RELATIONSHIP WITH GOD!**
+{{< video ratio="16x9" attributes="controls poster='https://www-jag-media.s3.us-east-2.amazonaws.com/JesusLoveLetter--OBflneMDLg.jpg'" mp4-src="https://www-jag-media.s3.us-east-2.amazonaws.com/JesusLoveLetter--OBflneMDLg.mp4" >}}
+
+<br/>
 
 God is the Creator of all things. The source. The beginning. The genesis. The alpha. He is beyond our comprehension. We catch glimpses of God here and there. We mostly know what God is like, **because Jesus came to this earth 2.000 years to reveal the heart of God. His passion for humanity! To understand God we must study Jesus!**
 
