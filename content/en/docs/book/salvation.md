@@ -1,7 +1,7 @@
 ---
-title: "Salvation is Free"
+title: "From Lost to Found"
 description: ""
-lead: "Salvation is Free"
+lead: "Salvation is a free gift of grace"
 date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
@@ -35,6 +35,8 @@ Could it be that we find it difficult to rejoice over a **lost person** coming t
 Being spiritually lost, doesn't mean being a horrible person, or a horrible sinner, committing horrible crimes, serious offenses, or a serial killer! **SPIRITUALLY LOST means being OK without God!** It means being OK with religion! It means God is not at the center of your life! It means God is not a relationship that is renewing you every day! It means you fulfill a religious duty once a week, or even daily, but God is not the driving force of your life! And, perhaps, you couldn't tell the difference between your good life and a life with God or a life without God! Isn't that tragic?
 
 What matters most to God, Friend, is your relationship with Him. What matters most to God about your wife, your husband, your children, your friends, your co-workers, people in the community, is their relationship with God. Eternity is on the balance! And you are God's messenger to them! If you don't know the difference between being saved and being lost, you probably can not see the difference in others either!
+
+{{< details "Power of Grace" >}}
 
 ## Power of Grace
 
@@ -70,9 +72,11 @@ SINNERS, who accept God in their lives, (Read the parable of the prodigal son, L
 
 Amazing Grace! Have you experienced the GRACE of God in your life?
 
+{{< /details >}}
+
 ## The Invitation
 
-The Bible says about the human nature in Romans 3: 10-12 (The Message)
+The Bible says about the human nature in Romans 3: 10-12
 
 **"There’s NOBODY living right, NOT EVEN ONE, NOBODY who knows the score, NOBODY ALERT FOR GOD. They've ALL taken the wrong turn; they've ALL wandered down blind alleys. NO ONE'S living right; I can’t find A SINGLE ONE. Their throats are gaping graves, their tongues slick as mudslides. Every word they speak is tinged with poison. They open their mouths and pollute the air. They race for the honor of sinner-of-the-year, litter the land with heartbreak and ruin. DON'T KNOW THE FIRST THING ABOUT LIVING WITH OTHERS. They never give God the time of day."**
 
@@ -113,7 +117,5 @@ Jesus proposition is simple when it comes to spiritual "truth." Spiritual or rel
 Want **TRUTH?** Walk with God. Spend time reading your Bible. Spent time praying. Spend time meditating. Spend time sharing God with people. Every time you spend time **WITH** God, doing what He **DOES,** reaching people for the Kingdom, **LOVING,** feeding the poor, listening to people, affirming them, loving them, you are actually **KNOWING TRUTH!** Isn't that a fascinating paradigm?
 
 Spend time with Jesus, reaching people for the Kingdom, following God's passion, and you will **know TRUTH!**
-
-**TRUTH** is always relational when it comes to God. Doing your own religious things and trying to discover truth in the Bible is really a waste of time. You know who said that? Jesus!
 
 **“You have your heads in your Bibles constantly because you think you’ll find eternal life there. But you miss the forest for the trees. These Scriptures are all about me! And here I am, standing right before you, and you aren't willing to receive from me the life you say you want."** John 5: 39-40 (The Message)

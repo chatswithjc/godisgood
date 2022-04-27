@@ -22,6 +22,8 @@ Have You Read God's Love Letter to you? [FathersLoveLetter.com](https://fathersl
 
 Your heavenly Father has a plan for each of our individual lives. To fulfill that plan is nothing less than ultimate success in life. But we need to hear Him, so that He can lead us into His plan for our lives. But to do that, we need to be connected to Him through a personal loving relationship.
 
+> God Is Most Glorified [Prized] in Us When We Are Most Satisfied [Happy] in Him
+
 > "We humans keep brainstorming options and plans, BUT God's PURPOSE prevails." *(Proverbs 19:21)*
 
 Everything, is either caused by God, or allowed by God. You either believe in the supreme, unlimited, power of God or not! You either believe that when you surrender to God, He takes over totally, or you live with a part-time God the rest of your life.
@@ -228,4 +230,3 @@ Everything God does in His universe is to LOVE you, bless you and direct you. Go
 ----
 
 **"Seek FIRST God's kingdom, and his righteousness, and ALL THE OTHER THINGS WILL BE GIVEN TO YOU AS WELL."** *(Matthew 6:33)* God wants to transform your heart and shape you for eternity. God has a purpose for you right now. God wants to reach people for His Kingdom through you, right now! Are you ready to surrender to God, today? Are you ready to put Him first in your life, above everything else?
-

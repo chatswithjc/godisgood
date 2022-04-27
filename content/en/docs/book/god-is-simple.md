@@ -22,13 +22,13 @@ If you choose to walk on the perfection God gave you, you **don't need to try to
 
 GRACE: Nothing is more explosive in the Bible than the concept grace. This is the bottom line that separates all RELIGIONS (Including the Christian religion) from those WHO have a RELATIONSHIP WITH GOD. RELIGION is the attempt to help God, to reach out to HIM. A RELATIONSHIP WITH GOD starts with God, it follows that you surrender to His love, and God finishes the world of perfecting you. In GRACE, who believe in a 100%, undiluted, raw GRACE rooted RELATIONSHIP with God.
 
-**"What actually took place is this: I TRIED keeping rules and working my head off to please God, and it didn't work. So I quit being a "law man" so that I could be God's man. Christ's life showed me how, and enabled me to do it. I identified myself completely with him. Indeed, I have been crucified with Christ. My ego is no longer central. It is no longer important that I appear righteous before you or have your good opinion, and I am no longer driven to impress God. Christ lives in me. The life you see me living is not "mine," but it is lived by faith in the Son of God, who loved me and gave himself for me. I am not going to go back on that."** Galatians 2:20-21 (The Message)
+**"What actually took place is this: I TRIED keeping rules and working my head off to please God, and it didn't work. So I quit being a "law man" so that I could be God's man. Christ's life showed me how, and enabled me to do it. I identified myself completely with him. Indeed, I have been crucified with Christ. My ego is no longer central. It is no longer important that I appear righteous before you or have your good opinion, and I am no longer driven to impress God. Christ lives in me. The life you see me living is not "mine," but it is lived by faith in the Son of God, who loved me and gave himself for me. I am not going to go back on that."** *(Galatians 2:20-21)*
 
 **"Is it not clear to you that to go back to that old rule-keeping, peer-pleasing religion would be an abandonment of everything personal and free in my relationship with God? I refuse to do that, to repudiate God's grace. If a living relationship with God could come by rule-keeping, then Christ died unnecessarily."** Powerful words of Jesus!
 
 One of the marks of a follower of God is simplicity. Simplicity in our culture tends to have negative connotations. When we speak of someone who is "simple" we don't necessarily mean it as a virtue. But in the Bible **simplicity** is the basic quality of those who will live with God throughout eternity. Did you know that? Here are the words of Jesus...
 
-**"For an answer Jesus called over a child, whom he stood in the middle of the room, and said, "I'm telling you, once and for all, that unless you return to square one and start over like children, you're not even going to get a look at the kingdom, let alone get in. Whoever becomes SIMPLE and ELEMENTAL again, like this child, will rank high in God's kingdom. What's more, when you receive the childlike on my account, it's the same as receiving me."** Matthew 18:2-5 - The Message
+**"For an answer Jesus called over a child, whom he stood in the middle of the room, and said, "I'm telling you, once and for all, that unless you return to square one and start over like children, you're not even going to get a look at the kingdom, let alone get in. Whoever becomes SIMPLE and ELEMENTAL again, like this child, will rank high in God's kingdom. What's more, when you receive the childlike on my account, it's the same as receiving me."** *(Matthew 18:2-5)*
 
 "God is simple... stop complicating your life with religion and personal anxiety..."
 
@@ -44,6 +44,8 @@ Matthew 6 introduces you into God's wholeness, God's simplicity and begs you to 
 
 Simplicity in its true meaning, and out of the frame of the four misconceptions I listed above, can be a powerful voice for God. Children are simple. The most passionate love is simple. Authentic emotions are simple, as opposed to neurotic and twisted manifestations of denial.
 
+{{< details "How to Be Happy" >}}
+
 ## How to Be Happy
 
 Psalm 119:1-8 contains **THE SECRET TO BE BLESSED BY GOD.**
@@ -57,18 +59,21 @@ Then I'd never have any regrets in comparing my life with your counsel.
 I thank you for speaking straight from your heart; I learn the pattern of your righteous ways.
 I'm going to do what you tell me to do; don't ever walk off and leave me.
 
-
 These verses describe exactly the opposite of what religion is all about. If you read the words of King David carefully, you will find out the he is talking about obedience here. But his description of obedience is **RELATIONAL.** Obedience is the result of a relationship with God, that is so precious to you, that you long to walk with Him, you long to learn His way!
 
 **God prescribes the right way to live.** That is the fundamental truth of the Bible. If you want to obtain the best of life, learn God's way and respond to His invitation. Don't seek to fulfill your life with anything else but the will and the presence of God!
 
 God will not only share with you the best life to live ever on this earth, but will also enable you, with transforming power, to become what He has set you to be in fulfilling your purpose.
 
+{{< /details >}}
+
+{{< details "How to Live Your Best Life" >}}
+
 ## How to Live Your Best Life
 
 We are born to dream. We are born to fly high with ideas. We are born to be creative. I love watching kids play. We are made by God to dream big dreams, and think of the best life has to offer. The human imagination has no limit. God is not against you **LIVING YOUR BEST LIFE EVER.** All to the contrary, He wants to do the opposite of what the world does... The world and the culture bring you down, help you to get stuck in a rut, makes you materialistic and dependent on "things." We, human, tend to decide what is best for us, we obsess over those things, we abhor what we label as unpleasant, and then miss the magnificent opportunities God has for us!
 
-Romans 12:1-2 \[My comments\]
+Romans 12:1-2 says
 
 **So here's what I want you to do, God helping you:**
 
@@ -103,13 +108,12 @@ So, I am passing on to you, not just a piece of life coaching advice... I am sha
 2) Offer it to God...
 
 3) Then embrace everything...
+4) 
 
-Here is the reason... Unless you offer God everything you won't be able to embrace everything... In our human nature we only want to embrace what we label "good".... God says, "Offer everything... then embrace it..."
+Here is the reason... Unless you offer God everything you won't be able to embrace everything... In our human nature we only want to embrace what we label "good".... God says, "Offer everything... then embrace it..." "What do I do with my lack of money? Shortage of funds... " Offer it to God, present it to him as an offering, then you will be able to embrace your condition and learn incredible lessons to grow and see new possibilities.
 
-"What do I do with my lack of money? Shortage of funds... "
-
-Offer it to God, present it to him as an offering, then you will be able to embrace your condition and learn incredible lessons to grow and see new possibilities.
+{{< /details >}}
 
 ----
 
-Whatever you are facing, good and bad, offer it to God and then embrace it, Friend! I promise... You will see God opening your eyes and producing magnificent spiritual, emotional and mental growth, that will impact your body, relationships and your world around. No life coach, or pastor can ever come up with a more powerful, transforming principle as this one!
+Whatever you are facing, good and bad, offer it to God and then embrace it, I promise you will see God opening your eyes and producing magnificent spiritual, emotional and mental growth, that will impact your body, relationships and your world around.

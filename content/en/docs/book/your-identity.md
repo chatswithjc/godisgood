@@ -18,17 +18,17 @@ toc: true
 
 God is the Creator of all things. The source. The beginning. The genesis. The alpha. He is beyond our comprehension. We catch glimpses of God here and there. We mostly know what God is like, **because Jesus came to this earth 2.000 years to reveal the heart of God. His passion for humanity! To understand God we must study Jesus!**
 
-God is not just the Creator of all things, but He also has the power to manage it **ALL!.** He sees it all. He knows it all. He watches every single detail of everything that happens on this planet. He controls His entire creation, with infinite precision, unknown to humans. You talk about multitasking? You haven't see anything yet, until you meet God in heaven, and watch Him "multitask." The power of computers, the precision of satellites, planets, the scientific research of the brain, the human body, the universe, the depths of the ocean, the incredible advances in medical treatment, are all just a mirror of God's wisdom! My entire intestinal track was scanned with precision in the form of endoscopy and colonoscopy. Even though I was sleeping during the procedure, I had the chance to ask questions, watch the enormous 4 monitors, and the instruments the IG Doctor would use to watch my "inside." After the procedure the Doctor explained to me, what he did inside my stomach. I just said, "wow"! All of it, is a very small mirror of the infinite "scanning" wisdom God performs 24/7 over the entire universe! Simply amazing.
+God is not just the Creator of all things, but He also has the power to manage it **ALL!.** He sees it all. He knows it all. He watches every single detail of everything that happens on this planet. He controls His entire creation, with infinite precision, unknown to humans. You talk about multitasking? You haven't see anything yet, until you meet God in heaven, and watch Him "multitask." The power of computers, the precision of satellites, planets, the scientific research of the brain, the human body, the universe, the depths of the ocean, the incredible advances in medical treatment, are all just a mirror of God's wisdom!
 
 God did not only allowed sin to show up, **by design,** in His perfect planet earth, but He had already defeated **IT,** since before sin showed up! **"God victorious,"** has been forever! Satan, the demons, and their acts of darkness, are a tiny little dot, an insignificant dent, in the context of eternity. I know it feels like it's huge to you and me!
 
-God has revealed the end of all matters on this planet, and has described the future. God is the alpha of all things, and the **omega.** Nothing has ever happened before God, nor will ever happen after God! Does it make sense? God "will ransom \[deliver\] them \[you,Friend, and me\] from the power of the grave; \[He\] will redeem them from death." Hosea 13:14 No worries, Friend. God is in control! 1 Thessalonians 4: 13-18
+God has revealed the end of all matters on this planet, and has described the future. God is the alpha of all things, and the **omega.** Nothing has ever happened before God, nor will ever happen after God! Does it make sense? God "will ransom \[deliver\] them \[you,Friend, and me\] from the power of the grave; **\[He\] will redeem them from death."** Hosea 13:14 No worries, Friend. God is in control! 1 Thessalonians 4: 13-18
 
-God has assured **YOUR** salvation and eternal life since the times of eternity.! You can live in peace. You can go to your grave in peace. You can be you, human, free to enjoy life, knowing with certainty, that God is not scoring points against you on a board in heaven. **That's one of the reasons why RELIGION is so hideous!** The fear of loosing your salvation is a sign of religion in your life. That is not from God! The anxiety for being right is perfectionism, but it's not from God! The drive to be moral, ethical, is perfectionism, but it's not from God! God makes people "good" differently than religion, culture, society and ethics! God changes the heart his way, in his own time! **BEHAVIOR** in God's universe follows **NEW BIRTH.** Transformation is the work of the Holy Spirit. **In the human realm you have to be behave good to be good! In God's universe, you have to accept Him to be good! You have to have a relationship with Him to be good! From then on, He takes over and transforms you from the inside out! His kind of goodness is the only one which matters to Him.**
+God has assured **YOUR** salvation and eternal life since the times of eternity.! You can live in peace. You can go to your grave in peace. You can be you, human, free to enjoy life, knowing with certainty, that God is not scoring points against you on a board in heaven. The anxiety for being right is perfectionism, but it's not from God! The drive to be moral, ethical, is perfectionism, but it's not from God! God makes people "good" differently than religion, culture, society and ethics! God changes the heart his way, in his own time! **BEHAVIOR** in God's universe follows **NEW BIRTH.** Transformation is the work of the Holy Spirit. **In the human realm you have to be behave good to be good! In God's universe, you have to accept Him to be good! You have to have a relationship with Him to be good! From then on, He takes over and transforms you from the inside out! His kind of goodness is the only one which matters to Him.**
 
 **“When Satan tells me I am a sinner HE COMFORTS ME me immensely, since Christ died for SINNERS.” (Martin Luther)** Think about this, Friend! Isn't this hilarious? God's perfect Kingdom is being populated by **SINNERS** only... :-), being transformed by His power!
 
-Romans 8:38-39 (The Message) **"So, what do you think? With God on our side like this, how can we lose? If God didn't hesitate to put everything on the line for us, EMBRACING OUR CONDITION and exposing himself to the worst by sending his own Son, is there anything else he wouldn't gladly and freely do for us? And who would dare tangle with God by messing with one of God's chosen? Who would dare even to point a finger? The One who died for us—who was raised to life for us!—is in the presence of God at this very moment sticking up for us. Do you think anyone is going to be able to drive a wedge between us and Christ's love for us? THERE IS NO WAY! Not trouble, not hard times, not hatred, not hunger, not homelessness, not bullying threats, not backstabbing, NOT EVEN THE WORST SINS LISTED IN SCRIPTURE \[Did you get that,Friend?\] None of this fazes us because Jesus loves us. I'm absolutely convinced that NOTHING—nothing living or dead, angelic or demonic, today or tomorrow, high or low, thinkable or unthinkable—absolutely nothing can get between us and God's love because of the way that Jesus our Master has embraced us."** It simply blows me away how religious people can ignore God's specific love promise and choose to live in fear! God is on your side, Friend! God... yes, God! If you are a follower of God, your next month's sins are forgiven, Friend! Your forever sins were forgiven at least 6.000 years ago, before God created Adam and Eve! Please don't fool around with religious people who try to rob your security in God! Don't even listen, or try to convince them! You will lose the argument and your peace of mind also! You never win with religious people! God's love wins!
+Romans 8:38-39 says **"So, what do you think? With God on our side like this, how can we lose? If God didn't hesitate to put everything on the line for us, EMBRACING OUR CONDITION and exposing himself to the worst by sending his own Son, is there anything else he wouldn't gladly and freely do for us? And who would dare tangle with God by messing with one of God's chosen? Who would dare even to point a finger? The One who died for us—who was raised to life for us!—is in the presence of God at this very moment sticking up for us. Do you think anyone is going to be able to drive a wedge between us and Christ's love for us? THERE IS NO WAY! Not trouble, not hard times, not hatred, not hunger, not homelessness, not bullying threats, not backstabbing, NOT EVEN THE WORST SINS LISTED IN SCRIPTURE \[Did you get that,Friend?\] None of this fazes us because Jesus loves us. I'm absolutely convinced that NOTHING—nothing living or dead, angelic or demonic, today or tomorrow, high or low, thinkable or unthinkable—absolutely nothing can get between us and God's love because of the way that Jesus our Master has embraced us."** God is on your side, Friend! God... yes, God! If you are a follower of God, your next month's sins are forgiven, Friend! Your forever sins were forgiven at least 6.000 years ago, before God created Adam and Eve! Please don't fool around with religious people who try to rob your security in God! Don't even listen, or try to convince them! You will lose the argument and your peace of mind also! You never win with religious people! God's love wins!
 
 What's the distinctive mark of followers of God? The total confidence that God is in control of everything in your life, now, in the past, forever, all the time, 24/7, even when you sleep! God decides how you will die! **The one who believes God is in control of life events, all of them, all the time, has infinitely the greatest advantage. He is WITHOUT limitation.** There are no accidents in God's universe, even if you feel like one!
 
@@ -46,6 +46,8 @@ To believe in God's supreme sovereignty and management of life, does not free yo
 
 God is with you! God walks with you! God will never drop you! No one, no one, can ever even touch you without God's consent! Read Romans 8! Let the Word of God transform your life right now!
 
+{{< details "Jesus Died to Destroy the Hostility Between Races" >}}
+
 ## Jesus Died to Destroy the Hostility Between Races
 
 Jesus Christ has broken down in his flesh the dividing wall of hostility by abolishing the law of commandments and ordinances, that he might create in himself one new man in place of the two, so making peace, and might reconcile us both to God in one body through the cross, thereby killing the hostility. *(Ephesians 2:14-16)*
@@ -54,31 +56,27 @@ The suspicion, prejudice, and demeaning attitudes between Jews and Gentiles (non
 
 **It is impossible to build a lasting unity among races by saying that all religions can come together as equally valid. Jesus Christ is the Son of God. God sent him into the world as the one and only means of saving sinners and reconciling races forever. If we deny this, we undermine the very foundation of eternal hope and everlasting unity among peoples. By his death on the cross, something cosmic, not parochial, was accomplished. God and man were reconciled. Only as the races find and enjoy this will they love and enjoy each other forever. In overcoming our alienation from God, Christ overcomes it between races.** *- Source: [Fifty Reasons Why Jesus Came to Die by John Piper](https://www.desiringgod.org/books/fifty-reasons-why-jesus-came-to-die)*
 
+{{< /details >}}
+
+
 ## Your True Identity in Christ
 
-**Extraordinary people don't just happen.** Ordinary people do happen.
-
-**Beautiful people are never accidents!** Gorgeous and handsome people may just have the right DNA. That's not what changes the world.
-
-**Compassionate people are not produced from one day to another. It often takes a life of pain and suffering.** Efficient, productive, motivated, and cold blooded people may succeed in what they pursue but will never leave behind an inspiring legacy for the next generation.
-
-**How you deal with your crisis, your challenge, your point of suffering, will ultimately determine how beautiful, how compassionate, how extraordinary you will become.**
+**Extraordinary people don't just happen.** Ordinary people do happen. **Beautiful people are never accidents!** Gorgeous and handsome people may just have the right DNA. That's not what changes the world. **Compassionate people are not produced from one day to another. It often takes a life of pain and suffering.** Efficient, productive, motivated, and cold blooded people may succeed in what they pursue but will never leave behind an inspiring legacy for the next generation. **How you deal with your crisis, your challenge, your point of suffering, will ultimately determine how beautiful, how compassionate, how extraordinary you will become.**
 
 The ones who run away from trouble end up empty, very often alone, and no standing values others can follow. The crafting of one's character takes a relationship with God, time, commitment, and very often untold suffering.
 
-**“The most beautiful people we have known are those who have known defeat, known suffering, known struggle, known loss, and have found their way out of the depths. These persons have an appreciation, a sensitivity, and an understanding of life that fills them with compassion, gentleness, and a deep loving concern. Beautiful people do not just happen.”** ~ Elisabeth Kübler-Ross
+**“The most beautiful people we have known are those who have known defeat, known suffering, known struggle, known loss, and have found their way out of the depths. These persons have an appreciation, a sensitivity, and an understanding of life that fills them with compassion, gentleness, and a deep loving concern. Beautiful people do not just happen.”** -Elisabeth Kübler-Ross
 
 Do you want to be average? Stay on the planes, and enjoy the good life. Do you want to be extraordinary? Climb up the mountain of challenges facing you. Stick to your marriage. Keep loving the unloving. Keep looking for ways to serve others. Don't settle for money and comfort. Seek to serve and love first. Learn from suffering and pain. Take every betrayal and hurt from another person as a chance to get better. **You will. And not only you will become better, but you will become extraordinary, and bring honor and glory to the name of God.**
 
 Rom 6:11 - When you let God love you, God stamps on you, what was promised to you from the times of eternity. "Saved, Perfect, yet to be Perfected to the end!" But you see, Friend, God doesn't just rescue you from eternal death; HE GIVES YOU A COMPLETLY NEW IDENTITY.
 
 * When you let God love you, you are completely forgiven and reconciled with God *(1 Cor1:2, 2 Cor 5:17-19, Gal 2:16)*
-
 * When you let God love you, you are made completely new and are given eternal life. *(Eph 2:5-6, Col2:13; 3:1; 1 Peter 1:3-5)*
-
 * When you let God love you you begin to experience the POWER of God in you life *(Gal 2:20, Col 1:27)*
-
 * When you let God love you, He stamps you as **"PERFECT"** in His eyes. Your flesh is not a part of His equation. Of course, that doesn't mean you will play games, as if you would have two selves inside of you, that you have to balance all the time. When God takes over He takes everything.
+
+{{< details "Key Affirmations" >}}
 
 ### Key Affirmations
 
@@ -100,6 +98,8 @@ Rom 6:11 - When you let God love you, God stamps on you, what was promised to yo
 - I have the mind of Christ *1 Corinthians 2:16*
 - I am being **transformed** into His image *2 Corinthians 3:18*
 
+{{< /details >}}
+
 ## From Ego to Oneness
 
 I like to describe my journey on this earth as a **relationship with God,** from "ego" to "wholeness."
@@ -118,7 +118,7 @@ Did you know God is always **"oneing everything"**? He is always bringing lose e
 
 As Julian herself explains, \[My explanations\] **“God wants us to know that this beloved soul \[unity\] that we are, is preciously knitted to him in its making by a knot so subtle and so mighty that it is** "oned" **\[united, made one\] with God. In this** "oneing" **it is made endlessly** holy." **\[Noticed, that holy, health, whole, all come from the same root word: complete, harmonious, integrated, one\]. "Furthermore," Julian says, "he \[God\] wants us to know that all the souls \[people\] which are one day to be saved in heaven without end are knit in this same knot and united in this same union, and made holy in this one identical holiness.”** Profound statements!
 
-The Apostle Paul speaks of this journey from "ego" to "wholeness," what Julian called **"oneing,"** in a magnificent chapter of the book to the Ephesians. I will only quote excerpts of chapter 4 (The Message). It's a magnificent chapter!
+The Apostle Paul speaks of this journey from "ego" to "wholeness," what Julian called **"oneing,"** in a magnificent chapter of the book to the Ephesians. I will only quote excerpts of chapter 4. 
 
 "In light of all this, here’s what I want you to do. While I’m locked up here, a prisoner for the Master, I want you to get out there and walk—better yet, run!—**on the road God called you to travel.** I don’t want any of you sitting around on your hands. I don’t want anyone strolling off, down some path that goes nowhere. And mark that you do this with humility and discipline—not in fits and starts, but steadily, **pouring yourselves out for each other in acts of love, alert at noticing differences and quick at mending fences.** \[Notice the emphasis: moving from "ego" (self) to "wholeness," community and harmony\]
 
