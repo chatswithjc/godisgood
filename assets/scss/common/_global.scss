@@ -184,10 +184,12 @@ body {
   border-top: 1px solid $gray-200;
   margin-top: 2rem;
   margin-bottom: 0;
+  padding: 10px;
 }
 
 .docs-navigation a {
-  font-size: $font-size-base * 0.9;
+  font-size: $font-size-base * 1.1;
+  font-weight: bold;
 }
 
 @include media-breakpoint-up(lg) {
@@ -196,8 +198,9 @@ body {
   }
 
   .docs-navigation a {
-    font-size: $font-size-base;
-  }
+    font-size: $font-size-base * 1.1;
+    font-weight: bold;
+    }
 }
 
 .navbar a:hover,

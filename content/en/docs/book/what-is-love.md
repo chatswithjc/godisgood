@@ -6,7 +6,7 @@ date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
 images: []
-heroImageUrl: '/images/lightstock_55418_web.jpg'
+heroImageUrl: '/images/lightstock_202060_medium_web.jpg'
 menu:
   docs:
     parent: "book"
@@ -14,13 +14,9 @@ weight: 250
 toc: true
 ---
 
-We follow those two greatest commandments—loving God and loving our neighbors—by imitating Jesus himself, and then teaching others to do the same. That is essentially what it means to be a disciple, or to be a Christian; it is to be someone who imitates Christ, or to be someone who imitates someone who imitates Christ *(1 Corinthians 11:1)*.
-
 The English language has a poor comprehension of the word ‘love’, because it has many different meanings. In Greek, there are actually six different words that all translate to the word “love” in English, such as agape versus phileo. The “love” expected of us is elaborated by the servant Paul.
 
 > Love is patient, love is kind. It does not envy, it does not boast, it is not proud. It does not dishonor others, it is not self-seeking, it is not easily angered, it keeps no record of wrongs. Love does not delight in evil but rejoices with the truth. It always protects, always trusts, always hopes, always perseveres. Love never fails. *(1 Corinthians 13:4-8)*
-
-If one will do as Christ commanded, one will discover eternal life or love and peace, of joy unimaginable, a place where the knowledge of good and evil is replaced with divine love. A place where all of your ego "issues" vanish, a place that is very real. We call it heaven. It is real, it is a place, and it is hidden, a secret, unknowable unless it is revealed by the Creator. Search it out for yourself through faith and obedience to Christ. Find Christ and you have discovered the country! Don’t just believe in it, or have faith it exists, Jesus commanded us to find it, for it is in Him, and Him alone. The knowledge of good and evil does not work well, and the story of humanity proves it does not work at all. 
 
 <div class="audio-player-box">
   <h6>Greatest Love Of All</h6>
@@ -32,7 +28,11 @@ If one will do as Christ commanded, one will discover eternal life or love and p
 
 There is no fear in love [dread does not exist]. But perfect (complete, full-grown) love drives out fear, because fear involves [the expectation of divine] punishment, so the one who is afraid [of God’s judgment] is not perfected in love [has not grown into a sufficient understanding of God’s love] *(1 John 4:18, Amp)*
 
-So while the disciples were trained to create disciples, and to teach, and to cast out demons, and to heal, the most important thing is that they were instructed to love, and to do all these things in that love.
+We follow those two greatest commandments—loving God and loving our neighbors—by imitating Jesus himself, and then teaching others to do the same. That is essentially what it means to be a disciple, or to be a Christian; it is to be someone who imitates Christ, or to be someone who imitates someone who imitates Christ *(1 Corinthians 11:1)*.
+
+If one will do as Christ commanded, one will discover eternal life or love and peace, of joy unimaginable, a place where the knowledge of good and evil is replaced with divine love. A place where all of your ego "issues" vanish, a place that is very real. We call it heaven. It is real, it is a place, and it is hidden, a secret, unknowable unless it is revealed by the Creator. Search it out for yourself through faith and obedience to Christ. Find Christ and you have discovered the country! Don’t just believe in it, or have faith it exists, Jesus commanded us to find it, for it is in Him, and Him alone. The knowledge of good and evil does not work well, and the story of humanity proves it does not work at all. 
+
+So while the disciples were trained to create disciples, and to teach, and to cast out demons, and to heal, the most important thing is that **they were instructed to love, and to do all these things in that love.**
 
 By having regular, loving fellowship with the other disciples. We human beings here on Earth are the physical body of Jesus in his stead while He remains in Heaven, until he returns to rule and reign here on Earth. As the body of Christ, we are many body parts *(1 Corinthians 12:12-31)*, and we must take our place in loving harmony with the other body parts.
 
@@ -91,8 +91,6 @@ If you love God, you also will suffer as a result, because people will attack yo
 
 **I know about your suffering and your poverty—but you are rich! I know the blasphemy of those opposing you. They say they are Jews, but they are not, because their synagogue belongs to Satan. Don't be afraid of what you are about to suffer. The devil will throw some of you into prison to test you. You will suffer for ten days. But if you remain faithful even when facing death, I will give you the crown of life. Anyone with ears to hear must listen to the Spirit and understand what he is saying to the churches. Whoever is victorious will not be harmed by the second death.** *(Revelation 2:9–11)*
 
-This is the shortest of the seven messages Jesus gave to these churches, and it is interesting to note there are no critical words. Jesus simply commended and encouraged this church. And instead of destroying the church, persecution actually strengthened it. The same will happen in our time, Friend!
-
-It is easy to belong to the masses of political, cultural and religious"flip-flop." It is costly to stand for the radical discipleship of Jesus.
+This is the shortest of the seven messages Jesus gave to these churches, and it is interesting to note there are no critical words. Jesus simply commended and encouraged this church. And instead of destroying the church, persecution actually strengthened it.
 
 Here is the promise to those who stand firm in times when it seems like everyone is surrendering to popular pressure. **"Though they stumble, they will never fall, for the Lord holds them by the hand."** *Psalm 37:24*

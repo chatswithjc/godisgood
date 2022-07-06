@@ -6,7 +6,7 @@ date: 2020-10-13T15:21:01+02:00
 lastmod: 2020-10-13T15:21:01+02:00
 draft: false
 images: []
-heroImageUrl: '/images/lightstock_55418_web.jpg'
+heroImageUrl: '/images/lightstock_157517_medium_web.jpg'
 menu:
   docs:
     parent: "book"

@@ -145,6 +145,47 @@ Do you trust God? Do you believe God loves you? Then you know deep down in your 
 
 **"Don't run from suffering; embrace it. Follow me and I'll show you how. Self-help is no help at all. Self-sacrifice is the way, my way, to saving yourself, your true self. What good would it do to get everything you want and lose you, the real you? What could you ever trade your soul for?"** *(Mark 8: 34-37)*
 
+There are 3 promises in the Bible I want you to remember today.
+
+1) **Suffering makes you BETTER.** I know it might sound odd! :-)
+
+Read 2 Corinthians 12:9 carefully... Absorb in your mind the full impact of what the apostle Paul says,
+
+**"...and so I wouldn't get a big head, I was given the gift of a HANDICAP to keep me in constant touch with my limitations. Satan's angel did his best to GET ME DOWN; what he in fact did was PUSH ME TO MY KNEES. No danger then of walking around high and mighty! At first I didn't think of it as a GIFT, and begged God to remove it. Three times I did that, and then he \[God\] told me:**
+
+**My grace is enough; it's all you need.**
+
+**My strength comes into its own in your weakness.**
+
+**Once I heard that, I was glad TO LET IT HAPPEN. I quit FOCUSING on the HANDICAP and BEGAN APPRECIATING the GIFT. It was a case of Christ's strength moving in on my weakness. Now I take limitations in stride, and with good cheer, these limitations that cut me down to size—abuse, accidents, opposition, bad breaks. I just let Christ take over! And SO THE WEAKER I GET, THE STRONGER I BECOME."**
+
+God... **"When we long for life without difficulties, remind us that oaks grow strong in contrary winds and diamonds are made under pressure"** Peter Marshall
+
+2) **God has the POWER to CREATE THE BEST OUT OF BAD THINGS.**
+
+**"Meanwhile, the moment we get tired in the waiting, God's Spirit is right alongside helping us along. If we DON'T KNOW HOW OR WHAT TO PRAY, IT DOESN'T MATTER. HE DOES OUR PRAYING IN AND FOR US, making prayer out of our wordless sighs, our aching groans. He knows us far better than we know ourselves, knows our pregnant condition, and keeps us present before God. THAT'S WHY WE CAN BE SURE THAT EVERY DETAIL IN OUR LIVES OF LOVE FOR GOD IS WORKED INTO SOMETHING GOOD."** Romans 8:28
+
+Isaiah 61:3 
+
+God promises to give us **"bouquets of roses instead of ashes, messages of joy instead of news of doom, a praising heart instead of a languid spirit."**
+
+God can use your pain, your suffering, to bless others. God can transform a calamity in an opportunity for people to bless you! God has 1001 ways to create something great out of miserable conditions. This promise **ONLY** applies to followers of God!
+
+3) **God knows YOUR LIMITS. God knows how much you can take. God is the HUMAN SUFFERING MANAGER.** This is a promise from God to you, in whatever you are facing right now, if you are a follower of His!
+
+**"No test or temptation that comes your way is beyond the course of what others have had to face. All you need to remember is that GOD WILL NEVER LET YOU DOWN; HE'LL NEVER LET YOU BE PUSHED PAST YOUR LIMIT; he'll always be there to help you come through it."** 1 Corinthians 10:13
+
+Whatever it is, 
+* Physical suffering...
+* Relational conflict...
+* A loveless marriage....
+* Financial hardships...
+* Losses...
+
+God 1) Can **USE** bad to make you better 2) Has the **POWER** to turn all things into something good 3) Will **NEVER** let you be pushed beyond your ability to endure!
+
+This is the Good News for today, friend! Share it with someone else!
+
 Share with people today, the Good News of a loving God, as if their eternal lives would depend on you. Live and love today, as if this would be your last day on earth! Nothing matters most!
 
 It's absolutely true that when you trust Christ as Savior, and surrender to God, He removes a whole set of problems you used to have—including the nagging guilt, the shame, the fear, and that empty sense of aimlessness in life that used to haunt you.
@@ -208,7 +249,6 @@ Please notice that this promise is only valid for followers of God.
 Life is a process and, as finite beings who live moment to moment, we can't see around the bend. We can't discern God's ultimate purposes.
 
 But we can know this: He is watching and caring—in control and loving us with an everlasting love.
-
 
 * **Seek God in your personal life! Delight in Him. Remain in His Word and will for your life. You can not be using the world's strategies to succeed in God's Kingdom. You can not be doing your own thing and expect God to come on board with you plan and bless you! He is not a piece of your plan. The big dream must be submitted to Him! You start with God and ask Him to reveal to you, the way He wants you to pursue it. He will do it!**
 

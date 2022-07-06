@@ -51,9 +51,13 @@ Have questions? If you need anything, anything at all, a Bible, prayer, even if 
 
 <br/><br/><br/>
 
-* Phone or Text: (623) 323-8645, Email: [hello@chatswithjesus.io](mailto:hello@chatswithjesus.io). Phoenix, Arizona.
+* Phone or Text: (623) 323-8645
+* Email: [hello@chatswithjesus.io](mailto:hello@chatswithjesus.io). Phoenix, Arizona.
+
+<!--
 * [TikTok](https://www.tiktok.com/@chatswithjesus) 
 * [Rumble](https://rumble.com/user/chatswithjesus)
+-->
 
 &ndash; Stuart (Editor, Webmaster)
 
@@ -71,6 +75,7 @@ Religion is cold, performance driven, information-based works-based.
 
 ### Audio and Teachings
 
+* [Jesus Without Religion](https://jesuswithoutreligion.com)
 * [30 Days to Thinking Right](https://www.thefathersfriends.org/need-help-start-here)
 * [Watch the Bible](https://bibleproject.com)
 * [Listen to the Bible](https://dailyaudiobible.com)

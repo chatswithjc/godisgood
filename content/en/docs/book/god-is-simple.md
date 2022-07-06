@@ -20,7 +20,16 @@ Here is the reality, friend, unless you read the simple story of God from the Bi
 
 If you choose to walk on the perfection God gave you, you **don't need to try to be better,** you simply need to surrender to the power of the God who is with you all the time (The Holy Spirit). The improvements and changes of your life you get by effort and sacrifice **DO NOT IMPRESS GOD** at all! They don't matter. What matters is your humble surrender to the transforming power of God. And that is the fundamental difference between **RELIGION** and a **RELATIONSHIP WITH GOD.**
 
-GRACE: Nothing is more explosive in the Bible than the concept grace. This is the bottom line that separates all RELIGIONS (Including the Christian religion) from those WHO have a RELATIONSHIP WITH GOD. RELIGION is the attempt to help God, to reach out to HIM. A RELATIONSHIP WITH GOD starts with God, it follows that you surrender to His love, and God finishes the world of perfecting you. In GRACE, who believe in a 100%, undiluted, raw GRACE rooted RELATIONSHIP with God.
+"Our love for others is our grateful response to the love God first demonstrated to us. *(1 John 4:19, TPT)*
+
+* God loves you, He created you good, like everything else in creation
+* There is only one unique person like you in all of creation
+* God longs to live inside of you. He is waiting for you to say Yes to Him!
+* So believe in God, let God love you, love yourself and others
+
+## GRACE
+
+Nothing is more explosive in the Bible than the concept grace. This is the bottom line that separates all RELIGIONS (Including the Christian religion) from those WHO have a RELATIONSHIP WITH GOD. RELIGION is the attempt to help God, to reach out to HIM. A RELATIONSHIP WITH GOD starts with God, it follows that you surrender to His love, and God finishes the world of perfecting you. In GRACE, who believe in a 100%, undiluted, raw GRACE rooted RELATIONSHIP with God.
 
 **"What actually took place is this: I TRIED keeping rules and working my head off to please God, and it didn't work. So I quit being a "law man" so that I could be God's man. Christ's life showed me how, and enabled me to do it. I identified myself completely with him. Indeed, I have been crucified with Christ. My ego is no longer central. It is no longer important that I appear righteous before you or have your good opinion, and I am no longer driven to impress God. Christ lives in me. The life you see me living is not "mine," but it is lived by faith in the Son of God, who loved me and gave himself for me. I am not going to go back on that."** *(Galatians 2:20-21)*
 
@@ -47,6 +56,8 @@ Simplicity in its true meaning, and out of the frame of the four misconceptions 
 {{< details "How to Be Happy" >}}
 
 ## How to Be Happy
+
+You can always choose to be happy, but you must choose yourself to be happy on God's terms!
 
 Psalm 119:1-8 contains **THE SECRET TO BE BLESSED BY GOD.**
 
