@@ -52,7 +52,7 @@ Have questions? If you need anything, anything at all, a Bible, prayer, even if 
 <br/><br/><br/>
 
 * Phone or Text: (623) 323-8645
-* Email: [hello@chatswithjesus.io](mailto:hello@chatswithjesus.io). Phoenix, Arizona.
+* Email: [hello@godspace.io](mailto:hello@godspace.io). Phoenix, Arizona.
 
 <!--
 * [TikTok](https://www.tiktok.com/@chatswithjesus) 
@@ -71,7 +71,7 @@ Religion is cold, performance driven, information-based works-based.
 
 **To grow in your faith, it's more important that you spend time with Jesus in prayer, fasting, reading the Bible than being busy going to church or doing random acts of kindness all the time. Showing compassion in goood works is a result of personal intimacy with Jesus.**
 
-*Source: [https://www.keytorevival.org/media-admonition/](https://www.keytorevival.org/media-admonition)*
+*Source: [Keytorevival.org](https://www.keytorevival.org/media-admonition)*
 
 ### Virtual Church and Social Network
 
