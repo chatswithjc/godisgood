@@ -43,4 +43,6 @@ In the end times there will be:
 
 Satan will try to ruin lives with pain, suffering, love of pleasure (hedonism), religion but all you really need in the end times is God's love and go forth love others. Avoid the traps of intellectualism, selfishness (ego), religion (control), confusion. God wants you to walk with Him! Choose a personal experience with God which is LIFE. Let God love you, Let God speak to you. God cannot be solid, He must be caught while seeking Him in the consciousness!
 
+### Virtual Church and Social Network
 
+* Visit [GodSpace](https://godspace.io) for more growth resources

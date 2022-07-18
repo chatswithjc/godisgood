@@ -581,7 +581,11 @@ Thus will begin a whole new chapter in this story God is writing. We have no ide
 
 ----
 
-Nothing to fear, Friend! God will protect His people. There will probably be some that will die standing for God. The resurrection of saints will happen shortly after, and we will enter eternity. Are you a follower of God Friend? Are you developing a relationship with Him, so when troubled times come you can hear His voice directing you? Are you spending time with Him in prayer, learning to depend on Him, reading the Bible?
+"You live fully in Me and now I live fully in them so that they will experience perfect unity, and the world will be convinced that You have sent Me, for they will see that You love each one of them with the same passionate love that you have for Me." (John 17:23 TPT)
+
+Christ-centered unity in love (selfless compassion) in the true mark of believers in the end-times.
+
+Nothing to fear, Friend! God will protect His people. There will probably be some that will die standing for God. The resurrection of saints will happen shortly after, and we will enter eternity. Are you a follower of God Friend? Are you developing a relationship with Him, so when troubled times come you can hear His voice directing you? Are you spending time with Him in prayer, learning to depend on Him, reading the Bible, loving others?
 
 
 [Now What? How can you be prepared? Next Steps &rsaquo;&rsaquo;]({{< relref "next-steps" >}})

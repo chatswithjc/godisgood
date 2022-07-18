@@ -59,18 +59,26 @@
   weight = 60
 
  [[social]]
-   name = "TikTok"
+   name = "Godspace eChurch, Social Network"
    pre = ""
-   url = "https://www.tiktok.com/@chatswithjesus"
+   url = "https://godspace.io"
    post = "v0.1.0"
    weight = 10
 
- [[social]]
-   name = "Rumble"
-   pre = ""
-   url = "https://rumble.com/user/chatswithjesus"
-   post = "v0.1.0"
-   weight = 20
+
+# [[social]]
+#   name = "TikTok"
+#   pre = ""
+#   url = "https://www.tiktok.com/@chatswithjesus"
+#   post = "v0.1.0"
+#   weight = 10
+
+# [[social]]
+#   name = "Rumble"
+#   pre = ""
+#   url = "https://rumble.com/user/chatswithjesus"
+#   post = "v0.1.0"
+#   weight = 20
 
 # [[footer]]
 #   name = "Privacy"

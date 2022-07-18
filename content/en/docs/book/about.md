@@ -73,18 +73,8 @@ Religion is cold, performance driven, information-based works-based.
 
 *Source: [https://www.keytorevival.org/media-admonition/](https://www.keytorevival.org/media-admonition)*
 
-### Audio and Teachings
+### Virtual Church and Social Network
 
-* [Jesus Without Religion](https://jesuswithoutreligion.com)
-* [30 Days to Thinking Right](https://www.thefathersfriends.org/need-help-start-here)
-* [Watch the Bible](https://bibleproject.com)
-* [Listen to the Bible](https://dailyaudiobible.com)
-* <a href="https://www-jag-media.s3.us-east-2.amazonaws.com/100_minute_bible.mp3">Listen to the 100 Minute Bible</a>
-* <a href="https://www-jag-media.s3.us-east-2.amazonaws.com/red_letters_words_of_jesus_by_gary_sosbee.mp3">Listen to the Red Letter Words of Christ</a>
-* [Watch the Jesus Film](https://www.jesusfilm.org/watch.html)
-* <a target="_blank" href="https://www.thepsalmsproject.com/" rel="noreferrer noopener">Psalms Project</a>
-* <a target="_blank" href="https://www.streetlightsbible.com/" rel="noreferrer noopener">Streetlights Audio Bible</a>: Listen to the NLT Audio Bible
-* <a target="_blank" href="https://www.tommywalkerministries.org/" rel="noreferrer noopener">Tommy Walker Ministries</a>: Free Worship Music
-* <a href="https://www.fathersloveletter.com/" target="_blank" rel="noreferrer noopener">The Father's Love Letter</a>
+* Visit [GodSpace](https://godspace.io) for more growth resources
 
 [Now What? Next Steps &rsaquo;&rsaquo;]({{< relref "next-steps" >}})
