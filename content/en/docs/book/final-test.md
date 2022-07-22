@@ -26,7 +26,7 @@ And here’s why: **I was HUNGRY and you fed me,**
 
 **I was homeless and you gave me a room,**
 
-*(Took a homeless person to your house? Offered meals for homeless people? Served the needs of the homeless? Sold your wealth like Scott Neesan, and go serve the poor in Cambodia? Government assistance to the homeless? Stop judging them as "losers"?)*
+*(Took a homeless person to your house? Offered meals for homeless people? Served the needs of the homeless? Sold your wealth like Scott Neesan, and go serve the poor in Cambodia? Government assistance to the homeless?)*
 
 **I was shivering and you gave me clothes,**
 

@@ -112,7 +112,7 @@ The more you let God love you the more naturally changes will happen in your lif
 
 The more you catch a glimpse of the love of God, the more you will be attracted to broken people. The less you will be affected adversely by people who find you weird, too passionate about God, and compassionate about the needy.
 
-I get a glimpse now of the spiritual loneliness and frustration Job experienced away from the church gathering, and the popularity of religious power. Wow… For all practical purposes he was perceived as a religious fiasco, a loser, a lost man.
+I get a glimpse now of the spiritual loneliness and frustration Job experienced away from the church gathering, and the popularity of religious power. For all practical purposes he was perceived as a religious fiasco, a loser, a lost man.
 
 Job was harassed by the leadership of God’s true church at the time. Job struggled, agonized, and did not surrendered to orthodox, conservative theology. He stood rooted in a personal knowledge of God.
 
