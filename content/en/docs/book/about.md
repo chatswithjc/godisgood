@@ -59,6 +59,7 @@ Have questions? If you need a Bible, prayer, or anything at all.
 
 * Phone or Text: (623) 323-8645
 * Email: [hello@godspace.io](mailto:hello@godspace.io). Phoenix, Arizona.
+* Instagram: [@godspace.io](https://www.instagram.com/godspace.io/)
 
 <!--
 * [TikTok](https://www.tiktok.com/@chatswithjesus) 

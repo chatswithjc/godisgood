@@ -59,11 +59,18 @@
   weight = 60
 
  [[social]]
+   name = "Instagram"
+   pre = ""
+   url = "https://www.instagram.com/godspace.io/"
+   post = "v0.1.0"
+   weight = 10
+
+ [[social]]
    name = "Godspace eChurch, Social Network"
    pre = ""
    url = "https://godspace.io"
    post = "v0.1.0"
-   weight = 10
+   weight = 11
 
 
 # [[social]]
